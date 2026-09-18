@@ -13,7 +13,9 @@ Please be patient, we have a life outside the internet and won't be always activ
 nominations vvv
 
 @/user1
+
 @/user2
+
 so on and so forth
 
 ima add sum more things here, gimme a bit.. u can add something here if u want, idrk wht else to add💔
