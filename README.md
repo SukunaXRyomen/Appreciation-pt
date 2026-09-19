@@ -2,7 +2,7 @@
 
 <p align="center"> (logo thing, align middle)
 
-<p align="center"> Here you can nominate people—such as your friends, mutuals,or anyone in Pony Town :^)! Apply the user/s <a href="https://appreciation-pt.atabook.org/">here</a> and show how much you appreciate them! It doesn't really matter if the message is short, long, or you friend doesn't have their own GitHub <3. If you want to remove yourself or someone here, go to <a href="https://appreciationptsremoval.straw.page/">this page!</a></p>
+<p align="center"> Here you can nominate people—such as your friends, mutuals,or anyone in Pony Town :^)! Apply the user/s <a href="https://appreciation-pt.atabook.org/">here</a> and show how much you appreciate them! It doesn't really matter if the message is short, long, or you friend doesn't have their own GitHub <3. If you want to remove yourself or someone, go to <a href="https://appreciationptsremoval.straw.page/">this page!</a></p>
 
 <p align="right"> (png beside this text, still figuring out how to do this) <sub>Please note that problematic people won't be added here, let us know if we added someone that had done something controversial and provide proof, otherwise we won't be removing the user in the nominations (⁠＠⁠_⁠＠⁠;⁠)
 
