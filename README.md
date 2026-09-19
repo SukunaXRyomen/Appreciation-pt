@@ -8,9 +8,7 @@ LAST LOG: sept. 19, 2026
 
 $\color{#6f5dcf}{\text{────୨ৎ────}}$
 
-  <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">
-
-<br>
+  <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">  <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">   <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">
 <br>
 
 $\color{#6f5dcf}{\text{────୨ৎ────}}$
@@ -40,14 +38,16 @@ $\color{#a794f7}{\text{𝐎𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞, 𝐰𝐞 𝐰𝐨�
 
 <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30"> $\color{#d4ccff}{\text{𝗣𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁, 𝘄𝗲 𝗵𝗮𝘃𝗲 𝗮 𝗹𝗶𝗳𝗲 𝗼𝘂𝘁𝘀𝗶𝗱𝗲 𝘁𝗵𝗲 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁 𝗮𝗻𝗱 𝘄𝗼𝗻’𝘁 𝗯𝗲 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗰𝘁𝗶𝘃𝗲. 𝗪𝗲 𝘄𝗶𝗹𝗹 𝗯𝗲 𝗶𝗴𝗻𝗼𝗿𝗶𝗻𝗴 𝘀𝗽𝗮𝗺𝘀...}}$ <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30">
 
+  <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">   <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
 
-NOMINATIONS YEASHHH
+## $\color{#f5ebff}{\text{♡︎ 𝐎𝐮𝐫 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞𝐝 𝐠𝐮𝐞𝐬𝐭𝐬 ♡︎}}$
 
 <br>
 
-  <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
-
-𝐭𝐡𝐞𝐰𝐚𝐫𝐝𝐞𝐧𝐦𝐜𝐬𝐦 was written an appreciation letter from 𝐌𝐚𝐭𝐭 [𝐲𝐞𝐥𝐥𝐨𝐰 𝐝𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] - "i just wanna say thanks gordon for always being there for me, making me always feel better when i felt down, making me laugh, playing together with me, just you checking up on me was always enough, so i wanted to thank you for that!"
+</div >
+  
+$\color{#f5ebff}{\text{♡︎ 𝐭𝐡𝐞𝐰𝐚𝐫𝐝𝐞𝐧𝐦𝐜𝐬𝐦 was written an appreciation letter from 𝐌𝐚𝐭𝐭 [𝐲𝐞𝐥𝐥𝐨𝐰 𝐝𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] }}$
+$\color{#f5ebff}{\text{"i just wanna say thanks gordon for always being there for me, making me always feel better when i felt down, making me laugh, playing together with me, just you checking up on me was always enough, so i wanted to thank you for that!"}}$
 
 @/user2 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
