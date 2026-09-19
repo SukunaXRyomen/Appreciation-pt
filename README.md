@@ -3,7 +3,7 @@ Gojo : guys do we add a divider up here and at the very bottom?
 
 <div align="center">
 
-## $\color{#d4ccff}{\text{𝙂𝙤𝙤𝙙 𝙙𝙖𝙮/𝙚𝙫𝙚𝙣𝙞𝙣𝙜 𝙖𝙣𝙙 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙚𝙫𝙚𝙧𝙮𝙥𝙤𝙣𝙮 𝙩𝙤 𝙋𝙤𝙣𝙮 𝙏𝙤𝙬𝙣'𝙨 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙞𝙤𝙣 𝙥𝙖𝙜𝙚!}}$
+## $\color{#d4ccff}{\text{𝙂𝙤𝙤𝙙 𝙙𝙖𝙮/𝙚𝙫𝙚𝙣𝙞𝙣𝙜 𝙖𝙣𝙙 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙚𝙫𝙚𝙧𝙮𝙥𝙤𝙣𝙮 𝙩𝙤 𝙋𝙤𝙣𝙮 𝙏𝙤𝙬𝙣'𝙨 𝘼𝙥𝙥𝙧𝙚𝙘𝙞𝙖𝙩𝙞𝙤𝙣 𝙥𝙖𝙜𝙚.ᐟ ❤︎}}$
 
 $\color{#d4ccff}{\text{────୨ৎ────}}$
 
@@ -20,7 +20,7 @@ ___
 
 
 
-## $\color{#d4ccff}{\text{𝙒𝙚 𝙬𝙞𝙡𝙡 𝙪𝙥𝙙𝙖𝙩𝙚 𝙖𝙧𝙤𝙪𝙣𝙙 𝙚𝙫𝙚𝙧𝙮 𝙬𝙚𝙚𝙠 𝙤𝙧 𝙩𝙬𝙤!}}$
+## $\color{#d4ccff}{\text{𝙒𝙚 𝙬𝙞𝙡𝙡 𝙪𝙥𝙙𝙖𝙩𝙚 𝙖𝙧𝙤𝙪𝙣𝙙 𝙚𝙫𝙚𝙧𝙮 𝙬𝙚𝙚𝙠 𝙤𝙧 𝙩𝙬𝙤.ᐟ}}$
 
 Please be patient, we have a life outside the internet and won't be always active. We will be ignoring spams.
 nominations vvv
