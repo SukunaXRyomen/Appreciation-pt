@@ -2,7 +2,7 @@
 
 ## Good day/evening and welcome everypony to Pony Town's Appreciation page!
 
-$\color{#FFFFFF}{\text{✦ ✦ ✦}}$
+$\color{#d4ccff}{\text{✦ ✦ ✦}}$
 
 (logo thing, align middle)
 
@@ -12,9 +12,9 @@ Here you can nominate people—such as your friends, mutuals,or anyone in Pony T
   
 ___
 
-<p align="center">
+
   <img src="https://file.garden/ade0uRrc7hT3IuzM/d58b3e57a3376af9ee3dccaec35060bd.gif" alt="Centered Image" width="850" height="150">
-</p>
+
 
 
 ## We will update around a week or two!
@@ -51,6 +51,6 @@ reminder to self (biphen): add a bit of pt's colours (?) to some of texts (not o
 
 .
 
-<p align="center">
+
   <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" alt="Centered Image" width="850" height="150">
-</p>
+
