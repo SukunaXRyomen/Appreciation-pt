@@ -2,7 +2,7 @@
 
 <p align="center"> (logo thing, align middle)
 
-<p align="center"> Here you can nominate people—such as your friends, mutuals,or anyone in Pony Town :^)! Apply the user/s [here](https://appreciation-pt.atabook.org/) and show how much you appreciate them! It doesn't really matter if the message is short or long <3. If you want to remove yourself or someone here, go to [this page!](.
+<p align="center"> Good day everypony! Here you can nominate people—such as your friends, mutuals,or anyone in Pony Town :^)! Apply the user/s [here](https://appreciation-pt.atabook.org/) and show how much you appreciate them! It doesn't really matter if the message is short or long <3. If you want to remove yourself or someone here, go to [this page!](.
 
 
 
