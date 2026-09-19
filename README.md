@@ -7,7 +7,7 @@ Gojo : guys do we add a divider up here and at the very bottom?
 
 $\color{#6f5dcf}{\text{────୨ৎ────}}$
 
-<img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">
+  <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">
 
 <br>
 <br>
@@ -31,7 +31,7 @@ $\color{#a794f7}{\text{𝐎𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞, 𝐰𝐞 𝐰𝐨�
 
 
 
-  <img src="https://file.garden/ade0uRrc7hT3IuzM/d58b3e57a3376af9ee3dccaec35060bd.gif" alt="Centered Image" width="850" height="150">
+  <img src="https://file.garden/ade0uRrc7hT3IuzM/d58b3e57a3376af9ee3dccaec35060bd.gif" width="850" height="150">
 
 
 
@@ -44,7 +44,7 @@ NOMINATIONS YEASHHH
 
 <br>
 
-<img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
+  <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
 
 @/user1 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
