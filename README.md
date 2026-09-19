@@ -1,5 +1,7 @@
 ## Good day/evening and welcome everypony to Pony Town's Appreciation page!
 
+$\color{#FFFFFF}{\text{✦ ✦ ✦}}$
+
 <p align="center"> (logo thing, align middle)
 
 <p align="center"> Here you can nominate people—such as your friends, mutuals,or anyone in Pony Town :^)! Apply the user/s <a href="https://appreciation-pt.atabook.org/">here</a> and show how much you appreciate them! It doesn't really matter if the message is short, long, or the person doesn't have their own GitHub <3. If you want to remove yourself or someone, go to <a href="https://appreciationptsremoval.straw.page/">this page!</a></p>
