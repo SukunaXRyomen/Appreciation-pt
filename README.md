@@ -20,7 +20,8 @@ ___
 
 
 
-## We will update around a week or two!
+## $\color{#d4ccff}{\text{𝙒𝙚 𝙬𝙞𝙡𝙡 𝙪𝙥𝙙𝙖𝙩𝙚 𝙖𝙧𝙤𝙪𝙣𝙙 𝙚𝙫𝙚𝙧𝙮 𝙬𝙚𝙚𝙠 𝙤𝙧 𝙩𝙬𝙤!}}$
+
 Please be patient, we have a life outside the internet and won't be always active. We will be ignoring spams.
 nominations vvv
 
