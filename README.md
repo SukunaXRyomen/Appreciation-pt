@@ -111,10 +111,22 @@ Gojo : bottom of the nominations i guess idk
 
 <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
 
-so on and so forth
+.
 
-ima add sum more things here, gimme a bit.. u can add something here if u want, idrk wht else to add💔
-reminder to self (biphen): add a bit of pt's colours (?) to some of texts (not on nominations, thats too much work) with a dash of purple,, make sure it looks good, ok thank u biphenyl
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
 .
 
 .
