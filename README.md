@@ -8,7 +8,7 @@
 
 (purple banner idk)
 
-### We will update around a week or two!
+## We will update around a week or two!
 Please be patient, we have a life outside the internet and won't be always active. We will be ignoring spams.
 nominations vvv
 
