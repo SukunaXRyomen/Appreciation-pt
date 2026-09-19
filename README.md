@@ -36,7 +36,9 @@ $\color{#a794f7}{\text{𝐎𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞, 𝐰𝐞 𝐰𝐨�
 
 ## $\color{#f5ebff}{\text{𝙒𝙚 𝙬𝙞𝙡𝙡 𝙪𝙥𝙙𝙖𝙩𝙚 𝙖𝙧𝙤𝙪𝙣𝙙 𝙚𝙫𝙚𝙧𝙮 𝙬𝙚𝙚𝙠 𝙤𝙧 𝙩𝙬𝙤.ᐟ}}$
 
-<img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30"> $\color{#d4ccff}{\text{𝗣𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁, 𝘄𝗲 𝗵𝗮𝘃𝗲 𝗮 𝗹𝗶𝗳𝗲 𝗼𝘂𝘁𝘀𝗶𝗱𝗲 𝘁𝗵𝗲 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁 𝗮𝗻𝗱 𝘄𝗼𝗻’𝘁 𝗯𝗲 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗰𝘁𝗶𝘃𝗲. 𝗪𝗲 𝘄𝗶𝗹𝗹 𝗯𝗲 𝗶𝗴𝗻𝗼𝗿𝗶𝗻𝗴 𝘀𝗽𝗮𝗺𝘀...}}$ <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30">
+<img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30"> $\color{#d4ccff}{\text{𝗣𝗹𝗲𝗮𝘀𝗲 𝗯𝗲 𝗽𝗮𝘁𝗶𝗲𝗻𝘁, 𝘄𝗲 𝗵𝗮𝘃𝗲 𝗮 𝗹𝗶𝗳𝗲 𝗼𝘂𝘁𝘀𝗶𝗱𝗲 𝘁𝗵𝗲 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁 𝗮𝗻𝗱 𝘄𝗼𝗻’𝘁 𝗯𝗲 𝗮𝗹𝘄𝗮𝘆𝘀 𝗮𝗰𝘁𝗶𝘃𝗲.}}$ <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30">
+
+<img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30"> $\color{#d4ccff}{\text{𝗪𝗲 𝘄𝗶𝗹𝗹 𝗯𝗲 𝗶𝗴𝗻𝗼𝗿𝗶𝗻𝗴 𝘀𝗽𝗮𝗺𝘀...}}$<img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30">
 
   <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">   <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
 
