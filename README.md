@@ -48,7 +48,7 @@ NOMINATIONS YEASHHH
 
   <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
 
-@/user1 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
+@/user1 was written an appreciation letter from (anon/ @ /user) - "i just wanna say thanks gordon for always being there for me, making me always feel better when i felt down, making me laugh, playing together with me, just you checking up on me was always enough, so i wanted to thank you for that!"
 
 @/user2 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
