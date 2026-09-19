@@ -17,9 +17,9 @@ ___
 Please be patient, we have a life outside the internet and won't be always active. We will be ignoring spams.
 nominations vvv
 
-@/user1
+@/user1 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
-@/user2
+@/user2 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
 so on and so forth
 
