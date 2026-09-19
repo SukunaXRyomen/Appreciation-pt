@@ -48,7 +48,7 @@ NOMINATIONS YEASHHH
 
   <img src="tumblr_fedcf4337f4cf15b6c7c35f2d82c0223_556c28ac_400.png">
 
-@/user1 was written an appreciation letter from 𝐌𝐚𝐭𝐭 [𝐲𝐞𝐥𝐥𝐨𝐰 𝐝𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] - "i just wanna say thanks gordon for always being there for me, making me always feel better when i felt down, making me laugh, playing together with me, just you checking up on me was always enough, so i wanted to thank you for that!"
+𝐭𝐡𝐞𝐰𝐚𝐫𝐝𝐞𝐧𝐦𝐜𝐬𝐦 was written an appreciation letter from 𝐌𝐚𝐭𝐭 [𝐲𝐞𝐥𝐥𝐨𝐰 𝐝𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞] - "i just wanna say thanks gordon for always being there for me, making me always feel better when i felt down, making me laugh, playing together with me, just you checking up on me was always enough, so i wanted to thank you for that!"
 
 @/user2 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
