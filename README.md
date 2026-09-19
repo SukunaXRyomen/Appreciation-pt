@@ -1,3 +1,5 @@
+LAST UPD: sept. 19, 2026
+
 Gojo : guys do we add a divider up here and at the very bottom?
 
 
@@ -49,6 +51,10 @@ NOMINATIONS YEASHHH
 @/user1 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
 
 @/user2 was written an appreciation letter from (anon/ @ /user) - "thingthingthengthehgetnsetkktkkttk"
+
+Gojo : bottom of the nominations i guess idk
+
+<img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
 
 so on and so forth
 
