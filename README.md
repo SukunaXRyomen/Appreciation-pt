@@ -90,7 +90,7 @@ $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘵𝘰 �
 
 $\color{#afa4f5}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘜𝘊𝘏 𝘑𝘈𝘕 𝘈𝘜𝘎𝘏𝘏 "}}$ 
 
-  [yukiozki](https://github.com/yukiozki), [B1mjini](https://github.com/B1mjini), [dysocore](https://github.com/dysocore), [Gabberzonnnn](https://github.com/Gabberzonnnn), [Zyieee](https://github.com/Zyieee) 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚
+  [yukiozki](https://github.com/yukiozki), [B1mjini](https://github.com/B1mjini), [dysocore](https://github.com/dysocore), [Gabberzonnnn](https://github.com/Gabberzonnnn), [Zyieee](https://github.com/Zyieee)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚}}$
 
 $\color{#e0c9ff}{\text{" 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘮𝘦𝘢𝘯 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘵𝘰 𝘮𝘦 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘸𝘦 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘴 𝘮𝘶𝘤𝘩 𝘢𝘴 𝘣𝘦𝘧𝘰𝘳𝘦.ᐟ.ᐟ}}$
 $\color{#ccbfff}{\text{𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘪𝘮 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘭𝘰𝘯𝘦𝘭𝘺 𝘥𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘪𝘷𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦𝘥 𝘩𝘢𝘷𝘦 𝘣𝘦𝘦𝘯 𝘭𝘦𝘴𝘴 𝘴𝘪𝘯𝘤𝘦 𝘪 𝘮𝘦𝘵 𝘺𝘰𝘶 𝘢𝘭𝘭.ᐟ.ᐟ 𝘪𝘭𝘺 𝘶 𝘨𝘶𝘺𝘴}}$
@@ -99,33 +99,31 @@ $\color{#afa4f5}{\text{" 𝘪 𝘮𝘢𝘺 𝘣𝘦 𝘮𝘦𝘢𝘯 𝘴𝘰�
 
 </p>
 
-  [PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3) 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!
+  [PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!}}$
 
-$\color{#e0c9ff}{\text{𝘺𝘰𝘶 𝘵𝘸𝘰 𝘢𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘯𝘪𝘤𝘦𝘴𝘵 𝘱𝘦𝘰𝘱𝘭𝘦 𝘦𝘷𝘦𝘳, 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 𝘭𝘰𝘯𝘨𝘦𝘳 𝘵𝘩𝘢𝘯 𝘰𝘵𝘩𝘦𝘳𝘴 𝘤𝘰𝘶𝘭𝘥}}$
-$\color{#ccbfff}{\text{𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘎𝘜𝘠𝘚.}}$
+$\color{#e0c9ff}{\text{" 𝘺𝘰𝘶 𝘵𝘸𝘰 𝘢𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘯𝘪𝘤𝘦𝘴𝘵 𝘱𝘦𝘰𝘱𝘭𝘦 𝘦𝘷𝘦𝘳, 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 𝘭𝘰𝘯𝘨𝘦𝘳 𝘵𝘩𝘢𝘯 𝘰𝘵𝘩𝘦𝘳𝘴 𝘤𝘰𝘶𝘭𝘥 "}}$
+$\color{#ccbfff}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘎𝘜𝘠𝘚. "}}$
 
 $\color{#e0c9ff}{\text{𝙋𝙞𝙭𝙚𝙡: " 𝘦𝘷𝘦𝘳 𝘴𝘪𝘯𝘤𝘦 𝘵𝘩𝘦 𝘥𝘢𝘺 𝘪 𝘮𝘦𝘵 𝘺𝘰𝘶, 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘴𝘸𝘦𝘦𝘵𝘦𝘴𝘵 𝘱𝘦𝘳𝘴𝘰𝘯 𝘦𝘷𝘦𝘳, 𝘥𝘦𝘴𝘱𝘪𝘵𝘦 𝘺𝘰𝘶 𝘢𝘯𝘥 𝘪 𝘩𝘢𝘷𝘪𝘯𝘨 𝘥𝘪𝘧𝘧𝘦𝘳𝘦𝘯𝘵 𝘵𝘪𝘮𝘦𝘻𝘰𝘯𝘦𝘴.}}$
 $\color{#ccbfff}{\text{𝘪 𝘸𝘰𝘶𝘭𝘥 𝘵𝘳𝘺 𝘵𝘰 𝘴𝘵𝘢𝘺 𝘶𝘱 𝘱𝘢𝘴𝘵 𝘮𝘺 𝘣𝘦𝘥𝘵𝘪𝘮𝘦 𝘵𝘰 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘢𝘤𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘺𝘰𝘶, 𝘢𝘯𝘥 𝘪 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘵𝘩𝘢𝘵. 𝘪 𝘵𝘳𝘺 𝘵𝘰 𝘭𝘪𝘴𝘵𝘦𝘯 𝘵𝘰 𝘸𝘩𝘢𝘵 𝘺𝘰𝘶 𝘴𝘢𝘺 𝘢𝘣𝘰𝘶𝘵 𝘺𝘰𝘶𝘳 𝘭𝘪𝘧𝘦,}}$ 
 $\color{#afa4f5}{\text{𝘵𝘳𝘺 𝘵𝘰 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘩𝘰𝘸 𝘺𝘰𝘶 𝘧𝘦𝘦𝘭 𝘢𝘯𝘥 𝘤𝘰𝘮𝘧𝘰𝘳𝘵 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘸𝘢𝘺. 𝘪 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘤𝘰𝘯𝘯𝘦𝘤𝘵 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶,}}$ 
 $\color{#8b7ee0}{\text{𝘵𝘰 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘺𝘰𝘶𝘳 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴 𝘢𝘯𝘥 𝘣𝘦 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘪 𝘢𝘱𝘱𝘦𝘢𝘳 𝘢𝘵 𝘯𝘪𝘨𝘩𝘵 𝘧𝘰𝘳 𝘺𝘰𝘶. 𝘪 𝘸𝘪𝘴𝘩 𝘪 𝘤𝘰𝘶𝘭𝘥 𝘮𝘦𝘦𝘵 𝘺𝘰𝘶 𝘪𝘯 𝘳𝘦𝘢𝘭 𝘭𝘪𝘧𝘦}}$ 
-$\color{#8377e0}{\text{𝘴𝘰 𝘪 𝘤𝘰𝘶𝘭𝘥 𝘭𝘦𝘵 𝘺𝘰𝘶 𝘨𝘪𝘷𝘦 𝘮𝘦 𝘢 𝘣𝘪𝘨 𝘩𝘶𝘨, 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘪𝘯 𝘳𝘦𝘢𝘭 𝘭𝘪𝘧𝘦 𝘪𝘮 𝘯𝘰𝘵 𝘢 𝘧𝘢𝘯 𝘰𝘧 𝘱𝘩𝘺𝘴𝘪𝘤𝘢𝘭 𝘵𝘰𝘶𝘤𝘩 𝘮𝘺𝘴𝘦𝘭𝘧. "}}$
+$\color{#796cd9}{\text{𝘴𝘰 𝘪 𝘤𝘰𝘶𝘭𝘥 𝘭𝘦𝘵 𝘺𝘰𝘶 𝘨𝘪𝘷𝘦 𝘮𝘦 𝘢 𝘣𝘪𝘨 𝘩𝘶𝘨, 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘪𝘯 𝘳𝘦𝘢𝘭 𝘭𝘪𝘧𝘦 𝘪𝘮 𝘯𝘰𝘵 𝘢 𝘧𝘢𝘯 𝘰𝘧 𝘱𝘩𝘺𝘴𝘪𝘤𝘢𝘭 𝘵𝘰𝘶𝘤𝘩 𝘮𝘺𝘴𝘦𝘭𝘧. "}}$
 
 $\color{#e0c9ff}{\text{𝙄𝙫𝙖𝙧𝙮: " 𝘪𝘵𝘴 𝘧𝘶𝘯𝘯𝘺 𝘵𝘰 𝘵𝘩𝘪𝘯𝘬 𝘵𝘩𝘢𝘵 𝘸𝘦 𝘣𝘰𝘵𝘩 𝘣𝘦𝘤𝘢𝘮𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘰𝘯𝘦 𝘱𝘢𝘳𝘵𝘺 𝘰𝘯 𝘱𝘰𝘯𝘺𝘵𝘰𝘸𝘯 }}$
-𝘸𝘩𝘦𝘳𝘦 𝘪 𝘸𝘢𝘴 𝘵𝘩𝘦 𝘣𝘰𝘥𝘺𝘨𝘶𝘢𝘳𝘥 𝘳𝘰𝘭𝘦 𝘢𝘯𝘥 𝘱𝘳𝘰𝘵𝘦𝘤𝘵𝘦𝘥 𝘺𝘰𝘶 𝘴𝘰 𝘺𝘰𝘶 𝘸𝘰𝘶𝘭𝘥 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘴𝘶𝘳𝘷𝘪𝘷𝘦 𝘪𝘯 𝘢 𝘮𝘢𝘧𝘪𝘢 𝘪𝘴 𝘴𝘪𝘭𝘭𝘺, 𝘣𝘶𝘵 𝘪𝘮 𝘚𝘖 𝘨𝘭𝘢𝘥 𝘸𝘦 𝘥𝘪𝘥 : ) 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 }}$
-𝘸𝘩𝘦𝘯 𝘬𝘢𝘵𝘪𝘦 𝘸𝘢𝘴 𝘤𝘢𝘶𝘴𝘪𝘯𝘨 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘴 𝘵𝘰 𝘮𝘦 𝘢𝘯𝘴 𝘴𝘰𝘮𝘦 𝘰𝘵𝘩𝘦𝘳𝘴, 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 𝘵𝘰 𝘴𝘵𝘢𝘺 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 }}$
-𝘵𝘰 𝘢𝘤𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘮𝘦 𝘢𝘯𝘥 𝘣𝘦 𝘵𝘩𝘦𝘳𝘦 𝘸𝘩𝘦𝘯 𝘵𝘩𝘪𝘯𝘨𝘴 𝘸𝘦𝘳𝘦𝘯𝘵 𝘧𝘦𝘦𝘭𝘪𝘯𝘨 𝘢𝘴 𝘨𝘰𝘰𝘥 𝘢𝘴 𝘪𝘵 𝘴𝘩𝘰𝘶𝘭𝘥𝘷𝘦 𝘣𝘦𝘦𝘯. 𝘸𝘦 𝘩𝘢𝘥 𝘰𝘶𝘳 𝘢𝘳𝘨𝘶𝘮𝘦𝘯𝘵𝘴, 𝘸𝘦 𝘩𝘢𝘥 𝘰𝘶𝘳 𝘮𝘰𝘮𝘦𝘯𝘵𝘴 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳, }}$
-𝘣𝘶𝘵 𝘸𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘮𝘢𝘥𝘦 𝘪𝘵 𝘶𝘱 𝘵𝘰 𝘦𝘢𝘤𝘩 𝘰𝘵𝘩𝘦𝘳, 𝘢𝘯𝘥 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦 𝘸𝘢𝘴 𝘢 𝘥𝘪𝘴𝘢𝘨𝘳𝘦𝘦𝘮𝘦𝘯𝘵 𝘣𝘦𝘵𝘸𝘦𝘦𝘯 𝘶𝘴 𝘪𝘵 𝘸𝘰𝘶𝘭𝘥 𝘯𝘦𝘷𝘦𝘳 𝘦𝘷𝘦𝘳 𝘤𝘩𝘢𝘯𝘨𝘦 𝘰𝘶𝘳 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. }}$
-𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘢𝘯𝘥 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘧𝘢𝘵𝘩𝘦𝘳 𝘴𝘪𝘯𝘤𝘦 𝘰𝘤𝘵𝘰𝘣𝘦𝘳, 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘧𝘳𝘰𝘮 𝘸𝘩𝘢𝘵 𝘪 𝘳𝘦𝘮𝘦𝘮𝘣𝘦𝘳 𝘭𝘰𝘭 "}}$
+$\color{#ccbfff}{\text{𝘸𝘩𝘦𝘳𝘦 𝘪 𝘸𝘢𝘴 𝘵𝘩𝘦 𝘣𝘰𝘥𝘺𝘨𝘶𝘢𝘳𝘥 𝘳𝘰𝘭𝘦 𝘢𝘯𝘥 𝘱𝘳𝘰𝘵𝘦𝘤𝘵𝘦𝘥 𝘺𝘰𝘶 𝘴𝘰 𝘺𝘰𝘶 𝘸𝘰𝘶𝘭𝘥 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘴𝘶𝘳𝘷𝘪𝘷𝘦 𝘪𝘯 𝘢 𝘮𝘢𝘧𝘪𝘢 𝘪𝘴 𝘴𝘪𝘭𝘭𝘺, 𝘣𝘶𝘵 𝘪𝘮 𝘚𝘖 𝘨𝘭𝘢𝘥 𝘸𝘦 𝘥𝘪𝘥 : ) 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 }}$
+$\color{#afa4f5}{\text{𝘸𝘩𝘦𝘯 𝘬𝘢𝘵𝘪𝘦 𝘸𝘢𝘴 𝘤𝘢𝘶𝘴𝘪𝘯𝘨 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘴 𝘵𝘰 𝘮𝘦 𝘢𝘯𝘴 𝘴𝘰𝘮𝘦 𝘰𝘵𝘩𝘦𝘳𝘴, 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 𝘵𝘰 𝘴𝘵𝘢𝘺 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 }}$
+$\color{#8b7ee0}{\text{𝘵𝘰 𝘢𝘤𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘮𝘦 𝘢𝘯𝘥 𝘣𝘦 𝘵𝘩𝘦𝘳𝘦 𝘸𝘩𝘦𝘯 𝘵𝘩𝘪𝘯𝘨𝘴 𝘸𝘦𝘳𝘦𝘯𝘵 𝘧𝘦𝘦𝘭𝘪𝘯𝘨 𝘢𝘴 𝘨𝘰𝘰𝘥 𝘢𝘴 𝘪𝘵 𝘴𝘩𝘰𝘶𝘭𝘥𝘷𝘦 𝘣𝘦𝘦𝘯. 𝘸𝘦 𝘩𝘢𝘥 𝘰𝘶𝘳 𝘢𝘳𝘨𝘶𝘮𝘦𝘯𝘵𝘴, 𝘸𝘦 𝘩𝘢𝘥 𝘰𝘶𝘳 𝘮𝘰𝘮𝘦𝘯𝘵𝘴 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳, }}$
+$\color{#796cd9}{\text{𝘣𝘶𝘵 𝘸𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘮𝘢𝘥𝘦 𝘪𝘵 𝘶𝘱 𝘵𝘰 𝘦𝘢𝘤𝘩 𝘰𝘵𝘩𝘦𝘳, 𝘢𝘯𝘥 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦 𝘸𝘢𝘴 𝘢 𝘥𝘪𝘴𝘢𝘨𝘳𝘦𝘦𝘮𝘦𝘯𝘵 𝘣𝘦𝘵𝘸𝘦𝘦𝘯 𝘶𝘴 𝘪𝘵 𝘸𝘰𝘶𝘭𝘥 𝘯𝘦𝘷𝘦𝘳 𝘦𝘷𝘦𝘳 𝘤𝘩𝘢𝘯𝘨𝘦 𝘰𝘶𝘳 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. }}$
+$\color{#655dc7}{\text{𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘢𝘯𝘥 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘧𝘢𝘵𝘩𝘦𝘳 𝘴𝘪𝘯𝘤𝘦 𝘰𝘤𝘵𝘰𝘣𝘦𝘳, 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘧𝘳𝘰𝘮 𝘸𝘩𝘢𝘵 𝘪 𝘳𝘦𝘮𝘦𝘮𝘣𝘦𝘳 𝘭𝘰𝘭 "}}$
 
-𝘪𝘯 𝘤𝘰𝘯𝘤𝘭𝘶𝘴𝘪𝘰𝘯, 𝘪 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘷𝘦𝘳𝘺 𝘮𝘶𝘤𝘩, 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 : )
+$\color{#e0c9ff}{\text{" 𝘪𝘯 𝘤𝘰𝘯𝘤𝘭𝘶𝘴𝘪𝘰𝘯, 𝘪 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘷𝘦𝘳𝘺 𝘮𝘶𝘤𝘩, 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 : ) "}}$
 
-  [6grammi](https://github.com/6grammi) was written an appreciation letter from an Anonymous!
+  [6grammi](https://github.com/6grammi)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
-Because he’s my oomffff
+$\color{#e0c9ff}{\text{𝘏𝘐 𝘚𝘛𝘐𝘕𝘒𝘠𝘠, 𝘐 𝘞𝘈𝘕𝘛 𝘛𝘖 𝘚𝘈𝘠 𝘐 𝘏𝘖𝘗𝘌 𝘜 𝘏𝘈𝘝𝘌 𝘈 𝘕𝘐𝘊𝘌 𝘋𝘈𝘠𝘠𝘠 𝘈𝘕𝘋 𝘠𝘖𝘜 𝘉𝘌𝘛𝘛𝘌𝘙 𝘛𝘈𝘒𝘌 𝘊𝘈𝘙𝘌 𝘖𝘍 𝘜𝘙𝘚𝘌𝘓𝘍.ᐟ.ᐟ}}$
 
-HI STINKYY, I WANT TO SAY I HOPE U HAVE A NICE DAYYY AND YOU BETTER TAKE CARE OF URSELF!!
-
-  [creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), and [itobear](https://github.com/itobear) were written an appreciation letter from Rain.e!
+  [creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [itobear](https://github.com/itobear) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐢𝐧.𝐞!}}$
 
 yu guy.s r da be.st peo ple ever i can .t believ e yu guy.s r my best freinds ,,  il uv. uguys so much it nmak e.s me cry im so gla. d i met da three of you;withou .t yu guys i woudln.t have many peop le 2 talk 2 . . i luv u guys sm yu r. da best .ᐟ.ᐟ.ᐟ.ᐟ
 
