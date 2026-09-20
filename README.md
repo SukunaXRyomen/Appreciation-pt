@@ -90,7 +90,7 @@ $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘵𝘰 �
 
 $\color{#afa4f5}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘜𝘊𝘏 𝘑𝘈𝘕 𝘈𝘜𝘎𝘏𝘏 "}}$ 
 
-  [𝘆𝘂𝗸𝗶𝗼𝘇𝗸𝗶](https://github.com/yukiozki), [𝗕𝟭𝗺𝗷𝗶𝗻𝗶](https://github.com/B1mjini), [𝗱𝘆𝘀𝗼𝗰𝗼𝗿𝗲](https://github.com/dysocore), [𝗚𝗮𝗯𝗯𝗲𝗿𝘇𝗼𝗻𝗻𝗻𝗻](https://github.com/Gabberzonnnn), [𝗭𝘆𝗶𝗲𝗲𝗲](https://github.com/Zyieee)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝘆𝘂𝗸𝗶𝗼𝘇𝗸𝗶](https://github.com/yukiozki), [𝗕𝟭𝗺𝗷𝗶𝗻𝗶](https://github.com/B1mjini), [𝗱𝘆𝘀𝗼𝗰𝗼𝗿𝗲](https://github.com/dysocore), [𝗚𝗮𝗯𝗯𝗲𝗿𝘇𝗼𝗻𝗻𝗻𝗻](https://github.com/Gabberzonnnn), [𝗭𝘆𝗶𝗲𝗲𝗲](https://github.com/Zyieee)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚}}$
 
 $\color{#e0c9ff}{\text{" 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘮𝘦𝘢𝘯 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘵𝘰 𝘮𝘦 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘸𝘦 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘴 𝘮𝘶𝘤𝘩 𝘢𝘴 𝘣𝘦𝘧𝘰𝘳𝘦.ᐟ.ᐟ}}$
 $\color{#ccbfff}{\text{𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘪𝘮 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘭𝘰𝘯𝘦𝘭𝘺 𝘥𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘪𝘷𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦𝘥 𝘩𝘢𝘷𝘦 𝘣𝘦𝘦𝘯 𝘭𝘦𝘴𝘴 𝘴𝘪𝘯𝘤𝘦 𝘪 𝘮𝘦𝘵 𝘺𝘰𝘶 𝘢𝘭𝘭.ᐟ.ᐟ 𝘪𝘭𝘺 𝘶 𝘨𝘶𝘺𝘴}}$
@@ -99,7 +99,7 @@ $\color{#afa4f5}{\text{" 𝘪 𝘮𝘢𝘺 𝘣𝘦 𝘮𝘦𝘢𝘯 𝘴𝘰�
 
 </p>
 
-  [𝗣𝗶𝘅𝗲𝗹𝗕𝗿𝗶𝗰𝗸𝘇](https://github.com/PixelBrickz), [𝗦𝗼𝗰𝗶𝗮𝗹-𝟯](https://github.com/Social-3)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$  [𝗣𝗶𝘅𝗲𝗹𝗕𝗿𝗶𝗰𝗸𝘇](https://github.com/PixelBrickz), [𝗦𝗼𝗰𝗶𝗮𝗹-𝟯](https://github.com/Social-3)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!}}$
 
 $\color{#e0c9ff}{\text{" 𝘺𝘰𝘶 𝘵𝘸𝘰 𝘢𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘯𝘪𝘤𝘦𝘴𝘵 𝘱𝘦𝘰𝘱𝘭𝘦 𝘦𝘷𝘦𝘳, 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 𝘭𝘰𝘯𝘨𝘦𝘳 𝘵𝘩𝘢𝘯 𝘰𝘵𝘩𝘦𝘳𝘴 𝘤𝘰𝘶𝘭𝘥 "}}$
 $\color{#ccbfff}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘎𝘜𝘠𝘚. "}}$
@@ -119,11 +119,11 @@ $\color{#655dc7}{\text{𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦�
 
 $\color{#e0c9ff}{\text{" 𝘪𝘯 𝘤𝘰𝘯𝘤𝘭𝘶𝘴𝘪𝘰𝘯, 𝘪 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘷𝘦𝘳𝘺 𝘮𝘶𝘤𝘩, 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 : ) "}}$
 
-  [𝟲𝗴𝗿𝗮𝗺𝗺𝗶](https://github.com/6grammi)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$  [𝟲𝗴𝗿𝗮𝗺𝗺𝗶](https://github.com/6grammi)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{𝘏𝘐 𝘚𝘛𝘐𝘕𝘒𝘠𝘠, 𝘐 𝘞𝘈𝘕𝘛 𝘛𝘖 𝘚𝘈𝘠 𝘐 𝘏𝘖𝘗𝘌 𝘜 𝘏𝘈𝘝𝘌 𝘈 𝘕𝘐𝘊𝘌 𝘋𝘈𝘠𝘠𝘠 𝘈𝘕𝘋 𝘠𝘖𝘜 𝘉𝘌𝘛𝘛𝘌𝘙 𝘛𝘈𝘒𝘌 𝘊𝘈𝘙𝘌 𝘖𝘍 𝘜𝘙𝘚𝘌𝘓𝘍.ᐟ.ᐟ}}$
 
-  [𝗰𝗿𝗲𝗮𝗺𝗽𝘂𝗳𝗳𝗹𝗶𝗻𝗴𝘀](https://github.com/creampufflings), [𝗮𝗲𝘁𝗵𝗲𝗿𝗽𝗮𝗿𝗮𝗱𝗶𝘀𝗲](https://github.com/aetherparadise), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗶𝘁𝗼𝗯𝗲𝗮𝗿](https://github.com/itobear) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐢𝐧.𝐞!}}$
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝗿𝗲𝗮𝗺𝗽𝘂𝗳𝗳𝗹𝗶𝗻𝗴𝘀](https://github.com/creampufflings), [𝗮𝗲𝘁𝗵𝗲𝗿𝗽𝗮𝗿𝗮𝗱𝗶𝘀𝗲](https://github.com/aetherparadise), $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗶𝘁𝗼𝗯𝗲𝗮𝗿](https://github.com/itobear) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐑𝐚𝐢𝐧.𝐞!}}$
 
 $\color{#e0c9ff}{\text{𝘺𝘶 𝘨𝘶𝘺.𝘴 𝘳 𝘥𝘢 𝘣𝘦.𝘴𝘵 𝘱𝘦𝘰 𝘱𝘭𝘦 𝘦𝘷𝘦𝘳 𝘪 𝘤𝘢𝘯 .𝘵 𝘣𝘦𝘭𝘪𝘦𝘷 𝘦 𝘺𝘶 𝘨𝘶𝘺.𝘴 𝘳 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘦𝘪𝘯𝘥𝘴 ,,}}$
 $\color{#ccbfff}{\text{𝘪𝘭 𝘶𝘷. 𝘶𝘨𝘶𝘺𝘴 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘪𝘵 𝘯𝘮𝘢𝘬 𝘦.𝘴 𝘮𝘦 𝘤𝘳𝘺 𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢. 𝘥 𝘪 𝘮𝘦𝘵 𝘥𝘢 𝘵𝘩𝘳𝘦𝘦 𝘰𝘧 𝘺𝘰𝘶;𝘸𝘪𝘵𝘩𝘰𝘶 .𝘵 𝘺𝘶 𝘨𝘶𝘺𝘴 𝘪 𝘸𝘰𝘶𝘥𝘭𝘯.𝘵 𝘩𝘢𝘷𝘦 𝘮𝘢𝘯𝘺 𝘱𝘦𝘰𝘱 𝘭𝘦 2 𝘵𝘢𝘭𝘬 2 . .}}$
@@ -132,11 +132,11 @@ $\color{#afa4f5}{\text{𝘪 𝘭𝘶𝘷 𝘶 𝘨𝘶𝘺𝘴 𝘴𝘮 𝘺𝘶
 $\color{#8b7ee0}{\text{𝘪 𝘮𝘪𝘨.𝘩 𝘵 𝘣𝘦 𝘢 𝘭𝘪𝘭 𝘴𝘵𝘶𝘱 𝘪𝘥 𝘢𝘯 𝘴𝘵𝘶 .𝘧𝘧 𝘣𝘶𝘵 𝘪𝘭𝘶 𝘷 𝘶 𝘨𝘶𝘺𝘴 𝘮𝘺 𝘣𝘧𝘧𝘴 𝘰𝘬𝘪 ♡}}$
 
 
-  [𝗹𝗶𝗴𝗵𝘁𝗻𝗶𝗻𝗴𝗿𝗼𝗱-𝗻𝗶𝗻𝗷𝗮 ](https://github.com/lightningrod-ninja) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗹𝗶𝗴𝗵𝘁𝗻𝗶𝗻𝗴𝗿𝗼𝗱-𝗻𝗶𝗻𝗷𝗮 ](https://github.com/lightningrod-ninja) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{𝘴𝘵𝘪𝘯𝘬 𝘴𝘵𝘪𝘮𝘬 𝘴𝘵𝘪𝘯𝘬𝘬𝘬𝘺𝘺𝘺𝘺𝘺 .ᐟ.ᐟ 𝘶 𝘴𝘵𝘪𝘯𝘬 𝘰𝘬 𝘫𝘢𝘺.ᐣ 𝘣𝘺𝘦}}$
 
-  [𝗰𝘅𝗾𝘂𝗲𝘁𝘁𝗲](https://github.com/cxquette) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 [𝗲𝗹𝗲𝗰𝘁𝗿𝗶𝗳𝘆𝗽𝗶𝗻𝗸](https://github.com/electrifypink)!
+   $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝘅𝗾𝘂𝗲𝘁𝘁𝗲](https://github.com/cxquette) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗲𝗹𝗲𝗰𝘁𝗿𝗶𝗳𝘆𝗽𝗶𝗻𝗸](https://github.com/electrifypink)!
 
 $\color{#e0c9ff}{\text{𝘠𝘖𝘜𝘙 𝘚𝘖𝘖𝘖𝘖 𝘊𝘖𝘖𝘓 𝘈𝘕𝘋 𝘉𝘌𝘚𝘛𝘌𝘚𝘛 𝘍𝘙𝘐𝘌𝘕𝘋 ♯𝘉𝘖𝘖𝘔𝘍 𝘖𝘒𝘈𝘠 𝘐 𝘓𝘐𝘒𝘌 𝘠𝘖𝘜𝘙 𝘚𝘒𝘐𝘕𝘚 𝘠𝘖𝘜 𝘊𝘖𝘖𝘓 𝘉𝘖𝘐 𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈𝘏𝘈}}$
 
