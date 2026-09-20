@@ -88,28 +88,48 @@ $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘵𝘰 �
 
 $\color{#afa4f5}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘜𝘊𝘏 𝘑𝘈𝘕 𝘈𝘜𝘎𝘏𝘏 "}}$ 
 
+yukiozki, B1mjini, dysocore, Gabberzonnnn, Zyieee were written an appreciation letter from Astra!
 
+you all are so cool and you all mean so much to me even if we dont talk as much as before!! im so glad that im friends with you all because all the lonely days that ive experienced have been less since i met you all!! ily u guys
 
+i may be mean sometimes,,, but i love u guys once more
 
+PixelBrickz, Social-3 were both written a letter from Phantom ♡ Tobias!
 
+you two are the most nicest people ever, staying by my side longer than others could
+I LOVE YOU GUYS.
 
+Pixel: ever since the day i met you, you were the most sweetest person ever, despite you and i having different timezones. i would try to stay up past my bedtime to at least accompany you, and i appreciate that. i try to listen to what you say about your life, try to understand how you feel and comfort you all the way. i genuinely want to connect with you, to understand your feelings and be there for you even if i appear at night for you. i wish i could meet you in real life so i could let you give me a big hug, even if in real life im not a fan of physical touch myself.
 
+Ivary: its funny to think that we both became friends because of one party on ponytown where i was the bodyguard role and protected you so you would at least survive in a mafia is silly, but im SO glad we did : ) you were there when katie was causing problems to me ans some others, you were there to stay by my side to accompany me and be there when things werent feeling as good as it shouldve been. we had our arguments, we had our moments together, but we always made it up to each other, and im glad that even if there was a disagreement between us it would never ever change our relationship together. thank you for being my best friend, and my online father since october, at least from what i remember lol
 
+in conclusion, i love you both very much, im glad you guys are my best friends : )
 
+6grammi was written a letter from an Anonymous!
 
+Because he’s my oomffff
 
+HI STINKYY, I WANT TO SAY I HOPE U HAVE A NICE DAYYY AND YOU BETTER TAKE CARE OF URSELF!!
 
+creampufflings, aetherparadise, and itobear were written a letter from Rain.e!
 
+yu guy.s r da be.st peo ple ever i can .t believ e yu guy.s r my best freinds ,,  il uv. uguys so much it nmak e.s me cry im so gla. d i met da three of you;withou .t yu guys i woudln.t have many peop le 2 talk 2 . . i luv u guys sm yu r. da best !!!!!!
 
+i mig.h t be a lil stup id & stu .ff but ilu v u guys my bffs oki ♡
 
+lightningrod-ninja was written a letter from an Anonymous!
 
+because hes cool and my oomfs
 
+stink stimk stinkkkyyyyy !! u stink ok jay? bye
 
-
+.
 
 Gojo : bottom of the nominations i guess idk
 
 <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
+
+BIPHENYL: i am SOO lazy to code, and also.. didnd i jst said tht colouring the texts are going to add so much work to this😭😭 (no malice), especially rly long messages. i get tht it's aesthetically pleasing, but man am i lazy to copy and paste
 
 .
 
