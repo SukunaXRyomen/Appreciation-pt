@@ -1,11 +1,3 @@
-Gojo's Status : X
-
-LAST LOG: sept. 19, 2026
-
-BIPHENYL: i am SOO lazy to code, and also.. didnd i jst said tht colouring the texts are going to add so much work to this😭😭 (no malice), especially rly long messages. i get tht it's aesthetically pleasing, but man am i lazy to copy and paste codes. oh and uh, ill be linking the githubs—it highlights the user—so itll be easy for the users finding themselves and/or their letter on this repository
-
-Gojo (sept 20) : YES NW BRU also i'll be coding GET OUT EVERYONE!!!!
-
 <div align="center">
 
 ## <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30"> $\color{#f5ebff}{\text{⋆ 𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐏𝐨𝐧𝐲 𝐓𝐨𝐰𝐧'𝐬 𝐀𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐏𝐚𝐠𝐞.ᐟ ⋆}}$ <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30">
@@ -148,48 +140,9 @@ $\color{#ccbfff}{\text{𝘦𝘭𝘦𝘤𝘵𝘳𝘪𝘧𝘺𝘱𝘪𝘯𝘬 𝘮
 
 Gojo : bottom of the nominations i guess idk
 
-<img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
+  <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
 
 
   <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" alt="Centered Image" width="850" height="150">
 
+𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: 𝐒𝐞𝐩𝐭. 𝟐𝟎, 𝟐𝟎𝟐𝟔
