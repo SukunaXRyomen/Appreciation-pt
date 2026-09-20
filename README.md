@@ -48,32 +48,32 @@ $\color{#a794f7}{\text{𝐎𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞, 𝐰𝐞 𝐰𝐨�
 
 </div >
   
-  $\color{#f6f0ff}{\text{♡︎ 𝐭𝐡𝐞𝐰𝐚𝐫𝐝𝐞𝐧𝐦𝐜𝐬𝐦 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐚𝐭𝐭 [𝐲𝐞𝐥𝐥𝐨𝐰𝐝𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞]! }}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐭𝐡𝐞𝐰𝐚𝐫𝐝𝐞𝐧𝐦𝐜𝐬𝐦](https://github.com/thewardenmcsm) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐚𝐭𝐭 [𝐲𝐞𝐥𝐥𝐨𝐰𝐝𝐞𝐥𝐭𝐚𝐫𝐮𝐧𝐞](https://github.com/yellowdeltarune)! }}$
 
 $\color{#e0c9ff}{\text{" 𝘪 𝘫𝘶𝘴𝘵 𝘸𝘢𝘯𝘯𝘢 𝘴𝘢𝘺 𝘵𝘩𝘢𝘯𝘬𝘴 𝘨𝘰𝘳𝘥𝘰𝘯 𝘧𝘰𝘳 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦𝘪𝘯𝘨 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘮𝘦,}}$ 
 $\color{#ccbfff}{\text{𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘦𝘦𝘭 𝘣𝘦𝘵𝘵𝘦𝘳 𝘸𝘩𝘦𝘯 𝘪 𝘧𝘦𝘭𝘵 𝘥𝘰𝘸𝘯, 𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘭𝘢𝘶𝘨𝘩, 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘸𝘪𝘵𝘩 𝘮𝘦,}}$ 
 $\color{#afa4f5}{\text{𝘫𝘶𝘴𝘵 𝘺𝘰𝘶 𝘤𝘩𝘦𝘤𝘬𝘪𝘯𝘨 𝘶𝘱 𝘰𝘯 𝘮𝘦 𝘸𝘢𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘦𝘯𝘰𝘶𝘨𝘩, 𝘴𝘰 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵.ᐟ "}}$
 
-  $\color{#f6f0ff}{\text{♡︎ 𝐋𝐨𝟎𝐧𝐲𝐆𝐨𝐨𝐧, 𝐂𝐫𝐮𝐜𝐢𝐟𝐢𝐞𝐝𝐎𝐫𝐠𝐚𝐧, 𝐚𝐧𝐝 𝐒𝐢𝐧𝐠𝐞𝐫-𝐨𝐟-𝐭𝐡𝐞-𝐧𝐞𝐰𝐠𝐞𝐧𝐞𝐬𝐢𝐬 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐢𝐤𝐚𝐞𝐥𝐚 [𝐆𝐢𝐭𝐡𝐮𝐛: 𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲]! }}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐋𝐨𝟎𝐧𝐲𝐆𝐨𝐨𝐧](https://github.com/Lo0nyGoon), [𝐂𝐫𝐮𝐜𝐢𝐟𝐢𝐞𝐝𝐎𝐫𝐠𝐚𝐧](https://github.com/CrucifiedOrgan), 𝐚𝐧𝐝 [𝐒𝐢𝐧𝐠𝐞𝐫-𝐨𝐟-𝐭𝐡𝐞-𝐧𝐞𝐰𝐠𝐞𝐧𝐞𝐬𝐢𝐬](https://github.com/Singer-of-the-newgenesis) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐢𝐤𝐚𝐞𝐥𝐚 [𝐆𝐢𝐭𝐡𝐮𝐛: 𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲](https://github.com/G0reology)! }}$
 
 $\color{#e0c9ff}{\text{" 𝘠𝘢𝘭𝘭 𝘢𝘳𝘦 𝘮𝘺 𝘤𝘭𝘰𝘴𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘬, 𝘱𝘵 𝘪𝘴 𝘯𝘦𝘷𝘦𝘳 𝘣𝘰𝘳𝘪𝘯𝘨 𝘸 𝘺𝘢𝘭𝘭 𝘰𝘯𝘭𝘪𝘯𝘦 𝘢𝘯𝘥 𝘪𝘭𝘺 𝘺𝘢𝘭𝘭/𝘱 𝘰𝘬𝘰𝘬 "}}$ 
 
-  $\color{#f6f0ff}{\text{♡︎ 𝐜𝐮𝐩𝐢𝐢𝐝𝐬𝐡𝐨𝐭 𝐚𝐧𝐝 𝐬𝐞𝐥𝐟-𝐩𝐞𝐫𝐬𝐞𝐫𝐯𝐚𝐭𝐢𝐨𝐧𝟖 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚]!}}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐜𝐮𝐩𝐢𝐢𝐝𝐬𝐡𝐨𝐭](https://github.com/cupiidshot) 𝐚𝐧𝐝 [𝐬𝐞𝐥𝐟-𝐩𝐞𝐫𝐬𝐞𝐫𝐯𝐚𝐭𝐢𝐨𝐧𝟖](https://github.com/self-preservation8) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta)!}}$
 
 $\color{#e0c9ff}{\text{" 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘤𝘩𝘶𝘥𝘴 𝘭𝘪𝘬𝘦 𝘢𝘯 𝘢𝘤𝘵𝘶𝘢𝘭 𝘧𝘢𝘵𝘩𝘦𝘳, 𝘐'𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 :-] "}}$ 
 
-  $\color{#f6f0ff}{\text{♡︎ 𝐢𝐢𝐦𝐬𝐞𝐲, 𝐬𝐭𝐚𝐫-𝐞𝐦𝐩𝐥𝐨𝐲𝐞𝐞, 𝐞𝐚𝐫𝐥-𝐠𝐫𝐞𝐲-𝐦𝐩𝟒, 𝐳𝐞𝐩𝐡𝐲𝐫𝐜𝐥𝐲𝐬𝐦, 𝐩𝐚𝐬𝐭𝐞𝐥𝐥𝐜𝐥𝐨𝐮𝐝𝐲𝐲 𝐚𝐧𝐝}}$
-  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚]!}}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐢𝐢𝐦𝐬𝐞𝐲](https://github.com/iimsey), [𝐬𝐭𝐚𝐫-𝐞𝐦𝐩𝐥𝐨𝐲𝐞𝐞](https://github.com/star-employee), [𝐞𝐚𝐫𝐥-𝐠𝐫𝐞𝐲-𝐦𝐩𝟒](https://github.com/earl-grey-mp4), [𝐳𝐞𝐩𝐡𝐲𝐫𝐜𝐥𝐲𝐬𝐦](https://github.com/zephyrclysm), [𝐩𝐚𝐬𝐭𝐞𝐥𝐥𝐜𝐥𝐨𝐮𝐝𝐲𝐲](https://github.com/pastellcloudyy) 𝐚𝐧𝐝}}$
+  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta)!}}$
 
 $\color{#e0c9ff}{\text{" 𝘩𝘪 𝘨𝘶𝘺𝘴 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘳𝘪𝘥𝘦 𝘰𝘳 𝘥𝘪𝘦 𝘰𝘬𝘢𝘺...? 𝘯𝘰𝘯𝘦 𝘰𝘧 𝘺𝘰𝘶 𝘦𝘹𝘱𝘭𝘰𝘥𝘦 𝘰𝘯 𝘮𝘦 𝘰𝘬𝘢𝘺...? 𝘰𝘬𝘢𝘺 "}}$
 
-  $\color{#f6f0ff}{\text{♡︎ 𝐥𝟎𝐕𝐄𝐒𝟏𝐂𝐊𝐤 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐥𝟎𝐕𝐄𝐒𝟏𝐂𝐊𝐤](https://github.com/10VES1CKk) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{" 𝘪 𝘫𝘶𝘴𝘵 𝘸𝘢𝘯𝘯𝘢 𝘴𝘢𝘺 𝘵𝘩𝘢𝘯𝘬𝘴 𝘨𝘰𝘳𝘥𝘰𝘯 𝘧𝘰𝘳 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦𝘪𝘯𝘨 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘮𝘦,}}$ 
 $\color{#ccbfff}{\text{𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘦𝘦𝘭 𝘣𝘦𝘵𝘵𝘦𝘳 𝘸𝘩𝘦𝘯 𝘪 𝘧𝘦𝘭𝘵 𝘥𝘰𝘸𝘯, 𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘭𝘢𝘶𝘨𝘩, 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘸𝘪𝘵𝘩 𝘮𝘦,}}$ 
 $\color{#afa4f5}{\text{𝘫𝘶𝘴𝘵 𝘺𝘰𝘶 𝘤𝘩𝘦𝘤𝘬𝘪𝘯𝘨 𝘶𝘱 𝘰𝘯 𝘮𝘦 𝘸𝘢𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘦𝘯𝘰𝘶𝘨𝘩, 𝘴𝘰 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵.ᐟ "}}$
 
-  $\color{#f6f0ff}{\text{♡︎ 𝐏𝐨𝐢𝐬𝐨𝐧𝐞𝐝𝐫𝐢𝐭𝐮𝐚𝐥 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐏𝐨𝐢𝐬𝐨𝐧𝐞𝐝𝐫𝐢𝐭𝐮𝐚𝐥](https://github.com/poisonedritual) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐧𝐨𝐧𝐲𝐦𝐨𝐮𝐬!}}$
 
 $\color{#e0c9ff}{\text{" 𝘏𝘪𝘪 𝘒𝘢𝘻𝘻𝘪 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘢 𝘭𝘰𝘵 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘮𝘦𝘢𝘯 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘵𝘰 𝘮𝘦,}}$ 
 $\color{#ccbfff}{\text{𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘮𝘺 𝘩𝘪𝘨𝘩𝘴 𝘢𝘯𝘥 𝘭𝘰𝘸𝘴 𝘢𝘯𝘥 𝘱𝘶𝘭𝘭𝘪𝘯𝘨 𝘮𝘦 𝘰𝘶𝘵 𝘰𝘧 𝘵𝘩𝘦 𝘥𝘦𝘦𝘱 𝘩𝘰𝘭𝘦 𝘐 𝘥𝘶𝘨 𝘮𝘺𝘴𝘦𝘭𝘧..}}$ 
@@ -81,20 +81,20 @@ $\color{#afa4f5}{\text{𝘵𝘩𝘳𝘰𝘶𝘨𝘩𝘰𝘶𝘵 𝘦𝘷𝘦𝘳
 
 $\color{#8b7ee0}{\text{...𝘈𝘯𝘥 𝘢𝘭𝘸𝘢𝘺𝘴 𝘴𝘵𝘢𝘺𝘦𝘥 𝘶𝘱 𝘯𝘪𝘨𝘩𝘵𝘴 𝘫𝘶𝘴𝘵 𝘵𝘰 𝘩𝘦𝘭𝘱 𝘮𝘦 𝘤𝘢𝘭𝘮 𝘥𝘰𝘸𝘯.. 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘴𝘰 𝘮𝘶𝘤𝘩..𝘪 𝘸𝘰𝘶𝘭𝘥𝘯𝘵 𝘣𝘦 𝘸𝘩𝘰 𝘪 𝘢𝘮 𝘯𝘰𝘸 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘺𝘰𝘶.ᐟ.ᐟ..ᐟ.ᐟ " }}$
 
-  $\color{#f6f0ff}{\text{♡︎ 𝐣𝐚𝐧𝐢𝐬𝐚𝐯𝐞𝐫𝐚𝐠𝐞 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐋𝐨𝐥𝐨!}}$
+  $\color{#f6f0ff}{\text{♡︎ [𝐣𝐚𝐧𝐢𝐬𝐚𝐯𝐞𝐫𝐚𝐠𝐞](https://github.com/janisaverage) 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐋𝐨𝐥𝐨!}}$
 
 $\color{#e0c9ff}{\text{" 𝘩𝘪 𝘫𝘢𝘯, 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘴𝘢𝘺 𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥 𝘦𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨 𝘺𝘰𝘶'𝘷𝘦 𝘥𝘰𝘯𝘦 𝘧𝘰𝘳 𝘮𝘦,}}$
 $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘩𝘢𝘱𝘱𝘺 𝘪 𝘸𝘪𝘭𝘭 𝘢𝘭𝘸𝘢𝘺𝘴 𝘯𝘰𝘵𝘪𝘤𝘦 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘐 𝘸𝘪𝘭𝘭 𝘧𝘰𝘳𝘦𝘷𝘦𝘳 𝘤𝘩𝘦𝘳𝘪𝘴𝘩 𝘵𝘩𝘢𝘵. "}}$
 
 $\color{#afa4f5}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘜𝘊𝘏 𝘑𝘈𝘕 𝘈𝘜𝘎𝘏𝘏 "}}$ 
 
-yukiozki, B1mjini, dysocore, Gabberzonnnn, Zyieee were written an appreciation letter from Astra!
+[yukiozki](https://github.com/yukiozki), [B1mjini](https://github.com/B1mjini), [dysocore](https://github.com/dysocore), [Gabberzonnnn](https://github.com/Gabberzonnnn), [Zyieee](https://github.com/Zyieee) were written an appreciation letter from Astra!
 
 you all are so cool and you all mean so much to me even if we dont talk as much as before!! im so glad that im friends with you all because all the lonely days that ive experienced have been less since i met you all!! ily u guys
 
 i may be mean sometimes,,, but i love u guys once more
 
-PixelBrickz, Social-3 were both written a letter from Phantom ♡ Tobias!
+[PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3) were both written a letter from Phantom ♡ Tobias!
 
 you two are the most nicest people ever, staying by my side longer than others could
 I LOVE YOU GUYS.
@@ -105,19 +105,19 @@ Ivary: its funny to think that we both became friends because of one party on po
 
 in conclusion, i love you both very much, im glad you guys are my best friends : )
 
-6grammi was written a letter from an Anonymous!
+[6grammi](https://github.com/6grammi) was written a letter from an Anonymous!
 
 Because he’s my oomffff
 
 HI STINKYY, I WANT TO SAY I HOPE U HAVE A NICE DAYYY AND YOU BETTER TAKE CARE OF URSELF!!
 
-creampufflings, aetherparadise, and itobear were written a letter from Rain.e!
+[creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), and [itobear](https://github.com/itobear) were written a letter from Rain.e!
 
 yu guy.s r da be.st peo ple ever i can .t believ e yu guy.s r my best freinds ,,  il uv. uguys so much it nmak e.s me cry im so gla. d i met da three of you;withou .t yu guys i woudln.t have many peop le 2 talk 2 . . i luv u guys sm yu r. da best !!!!!!
 
 i mig.h t be a lil stup id & stu .ff but ilu v u guys my bffs oki ♡
 
-lightningrod-ninja was written a letter from an Anonymous!
+[lightningrod-ninja](https://github.com/lightningrod-ninja) was written a letter from an Anonymous!
 
 because hes cool and my oomfs
 
