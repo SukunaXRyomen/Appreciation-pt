@@ -129,7 +129,7 @@ Gojo : bottom of the nominations i guess idk
 
 <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
 
-BIPHENYL: i am SOO lazy to code, and also.. didnd i jst said tht colouring the texts are going to add so much work to this😭😭 (no malice), especially rly long messages. i get tht it's aesthetically pleasing, but man am i lazy to copy and paste
+BIPHENYL: i am SOO lazy to code, and also.. didnd i jst said tht colouring the texts are going to add so much work to this😭😭 (no malice), especially rly long messages. i get tht it's aesthetically pleasing, but man am i lazy to copy and paste codes. oh and uh, ill be linking the githubs—it highlights the user—so itll be easy for the users finding themselves on this repository
 
 .
 
