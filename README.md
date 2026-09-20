@@ -56,16 +56,16 @@ $\color{#e0c9ff}{\text{" 𝘪 𝘫𝘶𝘴𝘵 𝘸𝘢𝘯𝘯𝘢 𝘴𝘢𝘺
 $\color{#ccbfff}{\text{𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘦𝘦𝘭 𝘣𝘦𝘵𝘵𝘦𝘳 𝘸𝘩𝘦𝘯 𝘪 𝘧𝘦𝘭𝘵 𝘥𝘰𝘸𝘯, 𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘭𝘢𝘶𝘨𝘩, 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘸𝘪𝘵𝘩 𝘮𝘦,}}$ 
 $\color{#afa4f5}{\text{𝘫𝘶𝘴𝘵 𝘺𝘰𝘶 𝘤𝘩𝘦𝘤𝘬𝘪𝘯𝘨 𝘶𝘱 𝘰𝘯 𝘮𝘦 𝘸𝘢𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘦𝘯𝘰𝘶𝘨𝘩, 𝘴𝘰 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵.ᐟ "}}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝐋𝐨𝟎𝐧𝐲𝐆𝐨𝐨𝐧](https://github.com/Lo0nyGoon), [𝐂𝐫𝐮𝐜𝐢𝐟𝐢𝐞𝐝𝐎𝐫𝐠𝐚𝐧](https://github.com/CrucifiedOrgan), 𝐚𝐧𝐝 [𝐒𝐢𝐧𝐠𝐞𝐫-𝐨𝐟-𝐭𝐡𝐞-𝐧𝐞𝐰𝐠𝐞𝐧𝐞𝐬𝐢𝐬](https://github.com/Singer-of-the-newgenesis)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ 𝐌𝐢𝐤𝐚𝐞𝐥𝐚 [𝐆𝐢𝐭𝐡𝐮𝐛: 𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲](https://github.com/G0reology)
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝐋𝐨𝟎𝐧𝐲𝐆𝐨𝐨𝐧](https://github.com/Lo0nyGoon), [𝐂𝐫𝐮𝐜𝐢𝐟𝐢𝐞𝐝𝐎𝐫𝐠𝐚𝐧](https://github.com/CrucifiedOrgan), 𝐚𝐧𝐝 [𝐒𝐢𝐧𝐠𝐞𝐫-𝐨𝐟-𝐭𝐡𝐞-𝐧𝐞𝐰𝐠𝐞𝐧𝐞𝐬𝐢𝐬](https://github.com/Singer-of-the-newgenesis)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ 𝐌𝐢𝐤𝐚𝐞𝐥𝐚 [𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲](https://github.com/G0reology)
 
 $\color{#e0c9ff}{\text{" 𝘠𝘢𝘭𝘭 𝘢𝘳𝘦 𝘮𝘺 𝘤𝘭𝘰𝘴𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘬, 𝘱𝘵 𝘪𝘴 𝘯𝘦𝘷𝘦𝘳 𝘣𝘰𝘳𝘪𝘯𝘨 𝘸 𝘺𝘢𝘭𝘭 𝘰𝘯𝘭𝘪𝘯𝘦 𝘢𝘯𝘥 𝘪𝘭𝘺 𝘺𝘢𝘭𝘭/𝘱 𝘰𝘬𝘰𝘬 "}}$ 
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝐜𝐮𝐩𝐢𝐢𝐝𝐬𝐡𝐨𝐭](https://github.com/cupiidshot)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝐬𝐞𝐥𝐟-𝐩𝐞𝐫𝐬𝐞𝐫𝐯𝐚𝐭𝐢𝐨𝐧𝟖](https://github.com/self-preservation8)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta)
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝐜𝐮𝐩𝐢𝐢𝐝𝐬𝐡𝐨𝐭](https://github.com/cupiidshot)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝐬𝐞𝐥𝐟-𝐩𝐞𝐫𝐬𝐞𝐫𝐯𝐚𝐭𝐢𝐨𝐧𝟖](https://github.com/self-preservation8)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta)
 
 $\color{#e0c9ff}{\text{" 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘤𝘩𝘶𝘥𝘴 𝘭𝘪𝘬𝘦 𝘢𝘯 𝘢𝘤𝘵𝘶𝘢𝘭 𝘧𝘢𝘵𝘩𝘦𝘳, 𝘐'𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 :-] "}}$ 
 
-  $\color{#f6f0ff}{\text{♡︎ [𝐢𝐢𝐦𝐬𝐞𝐲](https://github.com/iimsey), [𝐬𝐭𝐚𝐫-𝐞𝐦𝐩𝐥𝐨𝐲𝐞𝐞](https://github.com/star-employee), [𝐞𝐚𝐫𝐥-𝐠𝐫𝐞𝐲-𝐦𝐩𝟒](https://github.com/earl-grey-mp4), [𝐳𝐞𝐩𝐡𝐲𝐫𝐜𝐥𝐲𝐬𝐦](https://github.com/zephyrclysm), [𝐩𝐚𝐬𝐭𝐞𝐥𝐥𝐜𝐥𝐨𝐮𝐝𝐲𝐲](https://github.com/pastellcloudyy) 𝐚𝐧𝐝}}$
-  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta)!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝐢𝐢𝐦𝐬𝐞𝐲](https://github.com/iimsey), [𝐬𝐭𝐚𝐫-𝐞𝐦𝐩𝐥𝐨𝐲𝐞𝐞](https://github.com/star-employee), [𝐞𝐚𝐫𝐥-𝐠𝐫𝐞𝐲-𝐦𝐩𝟒](https://github.com/earl-grey-mp4), [𝐳𝐞𝐩𝐡𝐲𝐫𝐜𝐥𝐲𝐬𝐦](https://github.com/zephyrclysm), [𝐩𝐚𝐬𝐭𝐞𝐥𝐥𝐜𝐥𝐨𝐮𝐝𝐲𝐲](https://github.com/pastellcloudyy)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$
+  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ 𝐯𝐚𝐧𝐭𝐚 [𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta)
 
 $\color{#e0c9ff}{\text{" 𝘩𝘪 𝘨𝘶𝘺𝘴 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘳𝘪𝘥𝘦 𝘰𝘳 𝘥𝘪𝘦 𝘰𝘬𝘢𝘺...? 𝘯𝘰𝘯𝘦 𝘰𝘧 𝘺𝘰𝘶 𝘦𝘹𝘱𝘭𝘰𝘥𝘦 𝘰𝘯 𝘮𝘦 𝘰𝘬𝘢𝘺...? 𝘰𝘬𝘢𝘺 "}}$
 
@@ -83,49 +83,61 @@ $\color{#afa4f5}{\text{𝘵𝘩𝘳𝘰𝘶𝘨𝘩𝘰𝘶𝘵 𝘦𝘷𝘦𝘳
 
 $\color{#8b7ee0}{\text{...𝘈𝘯𝘥 𝘢𝘭𝘸𝘢𝘺𝘴 𝘴𝘵𝘢𝘺𝘦𝘥 𝘶𝘱 𝘯𝘪𝘨𝘩𝘵𝘴 𝘫𝘶𝘴𝘵 𝘵𝘰 𝘩𝘦𝘭𝘱 𝘮𝘦 𝘤𝘢𝘭𝘮 𝘥𝘰𝘸𝘯.. 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘴𝘰 𝘮𝘶𝘤𝘩..𝘪 𝘸𝘰𝘶𝘭𝘥𝘯𝘵 𝘣𝘦 𝘸𝘩𝘰 𝘪 𝘢𝘮 𝘯𝘰𝘸 𝘸𝘪𝘵𝘩𝘰𝘶𝘵 𝘺𝘰𝘶.ᐟ.ᐟ..ᐟ.ᐟ " }}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝐣𝐚𝐧𝐢𝐬𝐚𝐯𝐞𝐫𝐚𝐠𝐞](https://github.com/janisaverage)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐋𝐨𝐥𝐨!}}$
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝐣𝐚𝐧𝐢𝐬𝐚𝐯𝐞𝐫𝐚𝐠𝐞](https://github.com/janisaverage)   $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐋𝐨𝐥𝐨}}$
 
 $\color{#e0c9ff}{\text{" 𝘩𝘪 𝘫𝘢𝘯, 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘴𝘢𝘺 𝘪 𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥 𝘦𝘷𝘦𝘳𝘺𝘵𝘩𝘪𝘯𝘨 𝘺𝘰𝘶'𝘷𝘦 𝘥𝘰𝘯𝘦 𝘧𝘰𝘳 𝘮𝘦,}}$
 $\color{#ccbfff}{\text{𝘺𝘰𝘶𝘳 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘵𝘰 𝘮𝘢𝘬𝘦 𝘮𝘦 𝘩𝘢𝘱𝘱𝘺 𝘪 𝘸𝘪𝘭𝘭 𝘢𝘭𝘸𝘢𝘺𝘴 𝘯𝘰𝘵𝘪𝘤𝘦 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘐 𝘸𝘪𝘭𝘭 𝘧𝘰𝘳𝘦𝘷𝘦𝘳 𝘤𝘩𝘦𝘳𝘪𝘴𝘩 𝘵𝘩𝘢𝘵. "}}$
 
 $\color{#afa4f5}{\text{" 𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘚𝘖 𝘔𝘜𝘊𝘏 𝘑𝘈𝘕 𝘈𝘜𝘎𝘏𝘏 "}}$ 
 
-[yukiozki](https://github.com/yukiozki), [B1mjini](https://github.com/B1mjini), [dysocore](https://github.com/dysocore), [Gabberzonnnn](https://github.com/Gabberzonnnn), [Zyieee](https://github.com/Zyieee) were written an appreciation letter from Astra!
+  [yukiozki](https://github.com/yukiozki), [B1mjini](https://github.com/B1mjini), [dysocore](https://github.com/dysocore), [Gabberzonnnn](https://github.com/Gabberzonnnn), [Zyieee](https://github.com/Zyieee) 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚
 
-you all are so cool and you all mean so much to me even if we dont talk as much as before!! im so glad that im friends with you all because all the lonely days that ive experienced have been less since i met you all!! ily u guys
+$\color{#e0c9ff}{\text{" 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘢𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘮𝘦𝘢𝘯 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘵𝘰 𝘮𝘦 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘸𝘦 𝘥𝘰𝘯𝘵 𝘵𝘢𝘭𝘬 𝘢𝘴 𝘮𝘶𝘤𝘩 𝘢𝘴 𝘣𝘦𝘧𝘰𝘳𝘦.ᐟ.ᐟ}}$
+$\color{#ccbfff}{\text{𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘪𝘮 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘭𝘰𝘯𝘦𝘭𝘺 𝘥𝘢𝘺𝘴 𝘵𝘩𝘢𝘵 𝘪𝘷𝘦 𝘦𝘹𝘱𝘦𝘳𝘪𝘦𝘯𝘤𝘦𝘥 𝘩𝘢𝘷𝘦 𝘣𝘦𝘦𝘯 𝘭𝘦𝘴𝘴 𝘴𝘪𝘯𝘤𝘦 𝘪 𝘮𝘦𝘵 𝘺𝘰𝘶 𝘢𝘭𝘭.ᐟ.ᐟ 𝘪𝘭𝘺 𝘶 𝘨𝘶𝘺𝘴}}$
 
-i may be mean sometimes,,, but i love u guys once more
+$\color{#afa4f5}{\text{" 𝘪 𝘮𝘢𝘺 𝘣𝘦 𝘮𝘦𝘢𝘯 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴,,, 𝘣𝘶𝘵 𝘪 𝘭𝘰𝘷𝘦 𝘶 𝘨𝘶𝘺𝘴 𝘰𝘯𝘤𝘦 𝘮𝘰𝘳𝘦 "}}$
 
-[PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3) were both written an appreciation letter from Phantom ♡ Tobias!
+</p>
 
-you two are the most nicest people ever, staying by my side longer than others could
-I LOVE YOU GUYS.
+  [PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3) 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐀𝐬𝐭𝐫𝐚 𝐏𝐡𝐚𝐧𝐭𝐨𝐦 ♡ 𝐓𝐨𝐛𝐢𝐚𝐬!
 
-Pixel: ever since the day i met you, you were the most sweetest person ever, despite you and i having different timezones. i would try to stay up past my bedtime to at least accompany you, and i appreciate that. i try to listen to what you say about your life, try to understand how you feel and comfort you all the way. i genuinely want to connect with you, to understand your feelings and be there for you even if i appear at night for you. i wish i could meet you in real life so i could let you give me a big hug, even if in real life im not a fan of physical touch myself.
+$\color{#e0c9ff}{\text{𝘺𝘰𝘶 𝘵𝘸𝘰 𝘢𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘯𝘪𝘤𝘦𝘴𝘵 𝘱𝘦𝘰𝘱𝘭𝘦 𝘦𝘷𝘦𝘳, 𝘴𝘵𝘢𝘺𝘪𝘯𝘨 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 𝘭𝘰𝘯𝘨𝘦𝘳 𝘵𝘩𝘢𝘯 𝘰𝘵𝘩𝘦𝘳𝘴 𝘤𝘰𝘶𝘭𝘥}}$
+$\color{#ccbfff}{\text{𝘐 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘎𝘜𝘠𝘚.}}$
 
-Ivary: its funny to think that we both became friends because of one party on ponytown where i was the bodyguard role and protected you so you would at least survive in a mafia is silly, but im SO glad we did : ) you were there when katie was causing problems to me ans some others, you were there to stay by my side to accompany me and be there when things werent feeling as good as it shouldve been. we had our arguments, we had our moments together, but we always made it up to each other, and im glad that even if there was a disagreement between us it would never ever change our relationship together. thank you for being my best friend, and my online father since october, at least from what i remember lol
+$\color{#e0c9ff}{\text{𝙋𝙞𝙭𝙚𝙡: " 𝘦𝘷𝘦𝘳 𝘴𝘪𝘯𝘤𝘦 𝘵𝘩𝘦 𝘥𝘢𝘺 𝘪 𝘮𝘦𝘵 𝘺𝘰𝘶, 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦 𝘮𝘰𝘴𝘵 𝘴𝘸𝘦𝘦𝘵𝘦𝘴𝘵 𝘱𝘦𝘳𝘴𝘰𝘯 𝘦𝘷𝘦𝘳, 𝘥𝘦𝘴𝘱𝘪𝘵𝘦 𝘺𝘰𝘶 𝘢𝘯𝘥 𝘪 𝘩𝘢𝘷𝘪𝘯𝘨 𝘥𝘪𝘧𝘧𝘦𝘳𝘦𝘯𝘵 𝘵𝘪𝘮𝘦𝘻𝘰𝘯𝘦𝘴.}}$
+$\color{#ccbfff}{\text{𝘪 𝘸𝘰𝘶𝘭𝘥 𝘵𝘳𝘺 𝘵𝘰 𝘴𝘵𝘢𝘺 𝘶𝘱 𝘱𝘢𝘴𝘵 𝘮𝘺 𝘣𝘦𝘥𝘵𝘪𝘮𝘦 𝘵𝘰 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘢𝘤𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘺𝘰𝘶, 𝘢𝘯𝘥 𝘪 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦 𝘵𝘩𝘢𝘵. 𝘪 𝘵𝘳𝘺 𝘵𝘰 𝘭𝘪𝘴𝘵𝘦𝘯 𝘵𝘰 𝘸𝘩𝘢𝘵 𝘺𝘰𝘶 𝘴𝘢𝘺 𝘢𝘣𝘰𝘶𝘵 𝘺𝘰𝘶𝘳 𝘭𝘪𝘧𝘦,}}$ 
+$\color{#afa4f5}{\text{𝘵𝘳𝘺 𝘵𝘰 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘩𝘰𝘸 𝘺𝘰𝘶 𝘧𝘦𝘦𝘭 𝘢𝘯𝘥 𝘤𝘰𝘮𝘧𝘰𝘳𝘵 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘸𝘢𝘺. 𝘪 𝘨𝘦𝘯𝘶𝘪𝘯𝘦𝘭𝘺 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘤𝘰𝘯𝘯𝘦𝘤𝘵 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶,}}$ 
+$\color{#8b7ee0}{\text{𝘵𝘰 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘺𝘰𝘶𝘳 𝘧𝘦𝘦𝘭𝘪𝘯𝘨𝘴 𝘢𝘯𝘥 𝘣𝘦 𝘵𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘺𝘰𝘶 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘪 𝘢𝘱𝘱𝘦𝘢𝘳 𝘢𝘵 𝘯𝘪𝘨𝘩𝘵 𝘧𝘰𝘳 𝘺𝘰𝘶. 𝘪 𝘸𝘪𝘴𝘩 𝘪 𝘤𝘰𝘶𝘭𝘥 𝘮𝘦𝘦𝘵 𝘺𝘰𝘶 𝘪𝘯 𝘳𝘦𝘢𝘭 𝘭𝘪𝘧𝘦}}$ 
+$\color{#8377e0}{\text{𝘴𝘰 𝘪 𝘤𝘰𝘶𝘭𝘥 𝘭𝘦𝘵 𝘺𝘰𝘶 𝘨𝘪𝘷𝘦 𝘮𝘦 𝘢 𝘣𝘪𝘨 𝘩𝘶𝘨, 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘪𝘯 𝘳𝘦𝘢𝘭 𝘭𝘪𝘧𝘦 𝘪𝘮 𝘯𝘰𝘵 𝘢 𝘧𝘢𝘯 𝘰𝘧 𝘱𝘩𝘺𝘴𝘪𝘤𝘢𝘭 𝘵𝘰𝘶𝘤𝘩 𝘮𝘺𝘴𝘦𝘭𝘧. "}}$
 
-in conclusion, i love you both very much, im glad you guys are my best friends : )
+$\color{#e0c9ff}{\text{𝙄𝙫𝙖𝙧𝙮: " 𝘪𝘵𝘴 𝘧𝘶𝘯𝘯𝘺 𝘵𝘰 𝘵𝘩𝘪𝘯𝘬 𝘵𝘩𝘢𝘵 𝘸𝘦 𝘣𝘰𝘵𝘩 𝘣𝘦𝘤𝘢𝘮𝘦 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘰𝘧 𝘰𝘯𝘦 𝘱𝘢𝘳𝘵𝘺 𝘰𝘯 𝘱𝘰𝘯𝘺𝘵𝘰𝘸𝘯 }}$
+𝘸𝘩𝘦𝘳𝘦 𝘪 𝘸𝘢𝘴 𝘵𝘩𝘦 𝘣𝘰𝘥𝘺𝘨𝘶𝘢𝘳𝘥 𝘳𝘰𝘭𝘦 𝘢𝘯𝘥 𝘱𝘳𝘰𝘵𝘦𝘤𝘵𝘦𝘥 𝘺𝘰𝘶 𝘴𝘰 𝘺𝘰𝘶 𝘸𝘰𝘶𝘭𝘥 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘴𝘶𝘳𝘷𝘪𝘷𝘦 𝘪𝘯 𝘢 𝘮𝘢𝘧𝘪𝘢 𝘪𝘴 𝘴𝘪𝘭𝘭𝘺, 𝘣𝘶𝘵 𝘪𝘮 𝘚𝘖 𝘨𝘭𝘢𝘥 𝘸𝘦 𝘥𝘪𝘥 : ) 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 }}$
+𝘸𝘩𝘦𝘯 𝘬𝘢𝘵𝘪𝘦 𝘸𝘢𝘴 𝘤𝘢𝘶𝘴𝘪𝘯𝘨 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘴 𝘵𝘰 𝘮𝘦 𝘢𝘯𝘴 𝘴𝘰𝘮𝘦 𝘰𝘵𝘩𝘦𝘳𝘴, 𝘺𝘰𝘶 𝘸𝘦𝘳𝘦 𝘵𝘩𝘦𝘳𝘦 𝘵𝘰 𝘴𝘵𝘢𝘺 𝘣𝘺 𝘮𝘺 𝘴𝘪𝘥𝘦 }}$
+𝘵𝘰 𝘢𝘤𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘮𝘦 𝘢𝘯𝘥 𝘣𝘦 𝘵𝘩𝘦𝘳𝘦 𝘸𝘩𝘦𝘯 𝘵𝘩𝘪𝘯𝘨𝘴 𝘸𝘦𝘳𝘦𝘯𝘵 𝘧𝘦𝘦𝘭𝘪𝘯𝘨 𝘢𝘴 𝘨𝘰𝘰𝘥 𝘢𝘴 𝘪𝘵 𝘴𝘩𝘰𝘶𝘭𝘥𝘷𝘦 𝘣𝘦𝘦𝘯. 𝘸𝘦 𝘩𝘢𝘥 𝘰𝘶𝘳 𝘢𝘳𝘨𝘶𝘮𝘦𝘯𝘵𝘴, 𝘸𝘦 𝘩𝘢𝘥 𝘰𝘶𝘳 𝘮𝘰𝘮𝘦𝘯𝘵𝘴 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳, }}$
+𝘣𝘶𝘵 𝘸𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘮𝘢𝘥𝘦 𝘪𝘵 𝘶𝘱 𝘵𝘰 𝘦𝘢𝘤𝘩 𝘰𝘵𝘩𝘦𝘳, 𝘢𝘯𝘥 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘵𝘩𝘢𝘵 𝘦𝘷𝘦𝘯 𝘪𝘧 𝘵𝘩𝘦𝘳𝘦 𝘸𝘢𝘴 𝘢 𝘥𝘪𝘴𝘢𝘨𝘳𝘦𝘦𝘮𝘦𝘯𝘵 𝘣𝘦𝘵𝘸𝘦𝘦𝘯 𝘶𝘴 𝘪𝘵 𝘸𝘰𝘶𝘭𝘥 𝘯𝘦𝘷𝘦𝘳 𝘦𝘷𝘦𝘳 𝘤𝘩𝘢𝘯𝘨𝘦 𝘰𝘶𝘳 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳. }}$
+𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥, 𝘢𝘯𝘥 𝘮𝘺 𝘰𝘯𝘭𝘪𝘯𝘦 𝘧𝘢𝘵𝘩𝘦𝘳 𝘴𝘪𝘯𝘤𝘦 𝘰𝘤𝘵𝘰𝘣𝘦𝘳, 𝘢𝘵 𝘭𝘦𝘢𝘴𝘵 𝘧𝘳𝘰𝘮 𝘸𝘩𝘢𝘵 𝘪 𝘳𝘦𝘮𝘦𝘮𝘣𝘦𝘳 𝘭𝘰𝘭 "}}$
 
-[6grammi](https://github.com/6grammi) was written an appreciation letter from an Anonymous!
+𝘪𝘯 𝘤𝘰𝘯𝘤𝘭𝘶𝘴𝘪𝘰𝘯, 𝘪 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘷𝘦𝘳𝘺 𝘮𝘶𝘤𝘩, 𝘪𝘮 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 : )
+
+  [6grammi](https://github.com/6grammi) was written an appreciation letter from an Anonymous!
 
 Because he’s my oomffff
 
 HI STINKYY, I WANT TO SAY I HOPE U HAVE A NICE DAYYY AND YOU BETTER TAKE CARE OF URSELF!!
 
-[creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), and [itobear](https://github.com/itobear) were written an appreciation letter from Rain.e!
+  [creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), and [itobear](https://github.com/itobear) were written an appreciation letter from Rain.e!
 
-yu guy.s r da be.st peo ple ever i can .t believ e yu guy.s r my best freinds ,,  il uv. uguys so much it nmak e.s me cry im so gla. d i met da three of you;withou .t yu guys i woudln.t have many peop le 2 talk 2 . . i luv u guys sm yu r. da best !!!!!!
+yu guy.s r da be.st peo ple ever i can .t believ e yu guy.s r my best freinds ,,  il uv. uguys so much it nmak e.s me cry im so gla. d i met da three of you;withou .t yu guys i woudln.t have many peop le 2 talk 2 . . i luv u guys sm yu r. da best .ᐟ.ᐟ.ᐟ.ᐟ
 
 i mig.h t be a lil stup id & stu .ff but ilu v u guys my bffs oki ♡
 
-[lightningrod-ninja](https://github.com/lightningrod-ninja) was written an appreciation letter from an Anonymous!
+  [lightningrod-ninja](https://github.com/lightningrod-ninja) was written an appreciation letter from an Anonymous!
 
 because hes cool and my oomfs
 
 stink stimk stinkkkyyyyy !! u stink ok jay? bye
 
-[cxquette](https://github.com/cxquette) was written an appreciation letter from [electrifypink](https://github.com/electrifypink)!
+  [cxquette](https://github.com/cxquette) was written an appreciation letter from [electrifypink](https://github.com/electrifypink)!
 
 YOUR SOOOO COOL AND BESTEST FRIEND #BOOMF OKAY I LIKE YOUR SKINS YOU COOL BOI HAHAHAHAHAHAHAHAHA
 electrifypink made this message, hi bard
