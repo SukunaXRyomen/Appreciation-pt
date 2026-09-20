@@ -1,5 +1,9 @@
 <div align="center">
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sail&size=35&pause=1000&color=EAE5F7&center=true&width=435&lines=%E2%99%A1+Welcome!+%E2%99%A1" alt="Typing SVG" /></a>
+
+$\color{#f6f0ff}{\text{♡︎♡︎♡︎}}$
+
 ## <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30"> $\color{#f5ebff}{\text{⋆ 𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐏𝐨𝐧𝐲 𝐓𝐨𝐰𝐧'𝐬 𝐀𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐏𝐚𝐠𝐞.ᐟ ⋆}}$ <img src="tumblr_cd03f9f62713563a6c6ec2aa08414beb_d6484994_100.png" width="30" height="30">
 
 $\color{#6f5dcf}{\text{────୨ৎ────}}$
@@ -11,6 +15,8 @@ $\color{#6f5dcf}{\text{────୨ৎ────}}$
 
 
 (logo thing, align middle)
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sail&pause=1000&color=DCD9F7&center=true&width=435&lines=With+Appr-PT%2C+Rasmus%2C+and+William+A.+!" alt="Typing SVG" /></a>
 
 $\color{#f5ebff}{\text{𝐇𝐞𝐫𝐞 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐞 𝐩𝐞𝐨𝐩𝐥𝐞 — 𝐬𝐮𝐜𝐡 𝐚𝐬 𝐲𝐨𝐮𝐫 𝐟𝐫𝐢𝐞𝐧𝐝𝐬, 𝐦𝐮𝐭𝐮𝐚𝐥𝐬, 𝐨𝐫 𝐚𝐧𝐲𝐨𝐧𝐞 𝐢𝐧 𝐏𝐨𝐧𝐲 𝐓𝐨𝐰𝐧 :𝐃! 𝐀𝐩𝐩𝐥𝐲 𝐭𝐡𝐞 𝐮𝐬𝐞𝐫/𝐬}}$ <a href="https://appreciation-pt.atabook.org/">𝙝𝙚𝙧𝙚</a>
 $\color{#d4ccff}{\text{𝐚𝐧𝐝 𝐬𝐡𝐨𝐰 𝐮𝐬 𝐡𝐨𝐰 𝐦𝐮𝐜𝐡 𝐲𝐨𝐮 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐞 𝐭𝐡𝐞𝐦! 𝐈𝐭 𝐝𝐨𝐞𝐬𝐧’𝐭 𝐫𝐞𝐚𝐥𝐥𝐲 𝐦𝐚𝐭𝐭𝐞𝐫 𝐢𝐟 𝐭𝐡𝐞 𝐦𝐞𝐬𝐬𝐚𝐠𝐞 𝐢𝐬 𝐬𝐡𝐨𝐫𝐭, 𝐥𝐨𝐧𝐠, 𝐨𝐫 𝐭𝐡𝐞 𝐩𝐞𝐫𝐬𝐨𝐧 𝐝𝐨𝐞𝐬𝐧’𝐭 𝐡𝐚𝐯𝐞 𝐭𝐡𝐞𝐢𝐫 𝐨𝐰𝐧 𝐆𝐢𝐭𝐇𝐮𝐛 <𝟑. 𝐈𝐟 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐫𝐞𝐦𝐨𝐯𝐞 𝐲𝐨𝐮𝐫𝐬𝐞𝐥𝐟 𝐨𝐫 𝐬𝐨𝐦𝐞𝐨𝐧𝐞, 𝐠𝐨 𝐭𝐨}}$ <a href="https://appreciationptsremoval.straw.page/">𝙩𝙝𝙞𝙨 𝙥𝙖𝙜𝙚.ᐟ</a></p>
@@ -136,13 +142,11 @@ $\color{#e0c9ff}{\text{𝘠𝘖𝘜𝘙 𝘚𝘖𝘖𝘖𝘖 𝘊𝘖𝘖𝘓 �
 
 $\color{#ccbfff}{\text{𝘦𝘭𝘦𝘤𝘵𝘳𝘪𝘧𝘺𝘱𝘪𝘯𝘬 𝘮𝘢𝘥𝘦 𝘵𝘩𝘪𝘴 𝘮𝘦𝘴𝘴𝘢𝘨𝘦, 𝘩𝘪 𝘣𝘢𝘳𝘥}}$
 
-.
-
-Gojo : bottom of the nominations i guess idk
+<div align="center">
 
   <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
 
 
-  <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" alt="Centered Image" width="850" height="150">
+  <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" width="850" height="150">
 
 𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: 𝐒𝐞𝐩𝐭. 𝟐𝟎, 𝟐𝟎𝟐𝟔
