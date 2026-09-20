@@ -94,7 +94,7 @@ you all are so cool and you all mean so much to me even if we dont talk as much 
 
 i may be mean sometimes,,, but i love u guys once more
 
-[PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3) were both written a letter from Phantom ♡ Tobias!
+[PixelBrickz](https://github.com/PixelBrickz), [Social-3](https://github.com/Social-3) were both written an appreciation letter from Phantom ♡ Tobias!
 
 you two are the most nicest people ever, staying by my side longer than others could
 I LOVE YOU GUYS.
@@ -105,23 +105,28 @@ Ivary: its funny to think that we both became friends because of one party on po
 
 in conclusion, i love you both very much, im glad you guys are my best friends : )
 
-[6grammi](https://github.com/6grammi) was written a letter from an Anonymous!
+[6grammi](https://github.com/6grammi) was written an appreciation letter from an Anonymous!
 
 Because he’s my oomffff
 
 HI STINKYY, I WANT TO SAY I HOPE U HAVE A NICE DAYYY AND YOU BETTER TAKE CARE OF URSELF!!
 
-[creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), and [itobear](https://github.com/itobear) were written a letter from Rain.e!
+[creampufflings](https://github.com/creampufflings), [aetherparadise](https://github.com/aetherparadise), and [itobear](https://github.com/itobear) were written an appreciation letter from Rain.e!
 
 yu guy.s r da be.st peo ple ever i can .t believ e yu guy.s r my best freinds ,,  il uv. uguys so much it nmak e.s me cry im so gla. d i met da three of you;withou .t yu guys i woudln.t have many peop le 2 talk 2 . . i luv u guys sm yu r. da best !!!!!!
 
 i mig.h t be a lil stup id & stu .ff but ilu v u guys my bffs oki ♡
 
-[lightningrod-ninja](https://github.com/lightningrod-ninja) was written a letter from an Anonymous!
+[lightningrod-ninja](https://github.com/lightningrod-ninja) was written an appreciation letter from an Anonymous!
 
 because hes cool and my oomfs
 
 stink stimk stinkkkyyyyy !! u stink ok jay? bye
+
+[cxquette](https://github.com/cxquette) was written an appreciation letter from an Anonymous!
+
+YOUR SOOOO COOL AND BESTEST FRIEND #BOOMF OKAY I LIKE YOUR SKINS YOU COOL BOI HAHAHAHAHAHAHAHAHA
+[electrifypink](https://github.com/electrifypink) made this message, hi bard
 
 .
 
