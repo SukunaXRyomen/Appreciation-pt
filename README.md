@@ -16,7 +16,7 @@ $\color{#6f5dcf}{\text{────୨ৎ────}}$
 
 <div align="center">
 
-<img src="Untitled16_20260920182939.png">
+<img src="Untitled516_20260920184618.png">
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sail&pause=1000&color=DCD9F7&center=true&width=435&lines=With+Appr-PT%2C+Rasmus%2C+and+William+A.+!" alt="Typing SVG" /></a>
 
