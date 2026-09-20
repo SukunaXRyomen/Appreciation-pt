@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sail&size=35&pause=1000&color=EAE5F7&center=true&width=435&lines=%E2%99%A1+Welcome!+%E2%99%A1" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sail&size=30&pause=1000&color=EAE5F7&center=true&width=435&lines=%E2%99%A1+Welcome!+%E2%99%A1" alt="Typing SVG" /></a>
 
 $\color{#f6f0ff}{\text{♡︎♡︎♡︎}}$
 
@@ -8,13 +8,15 @@ $\color{#f6f0ff}{\text{♡︎♡︎♡︎}}$
 
 $\color{#6f5dcf}{\text{────୨ৎ────}}$
 
+
   <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">  <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">   <img src="tumblr_6f62e698df948743bd4658af74babfd8_92a343f4_250.png">
 <br>
 
 $\color{#6f5dcf}{\text{────୨ৎ────}}$
 
+<div align="center">
 
-(logo thing, align middle)
+<img src="Untitled16_20260920182939.png">
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sail&pause=1000&color=DCD9F7&center=true&width=435&lines=With+Appr-PT%2C+Rasmus%2C+and+William+A.+!" alt="Typing SVG" /></a>
 
