@@ -123,10 +123,10 @@ because hes cool and my oomfs
 
 stink stimk stinkkkyyyyy !! u stink ok jay? bye
 
-[cxquette](https://github.com/cxquette) was written an appreciation letter from an Anonymous!
+[cxquette](https://github.com/cxquette) was written an appreciation letter from an [electrifypink](https://github.com/electrifypink)!
 
 YOUR SOOOO COOL AND BESTEST FRIEND #BOOMF OKAY I LIKE YOUR SKINS YOU COOL BOI HAHAHAHAHAHAHAHAHA
-[electrifypink](https://github.com/electrifypink) made this message, hi bard
+electrifypink made this message, hi bard
 
 .
 
