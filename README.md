@@ -150,6 +150,8 @@ $\color{#e0c9ff}{\text{Youre literally the best and caring boyfriend eever !! I 
 
 $\color{#ccbfff}{\text{This appreciation message was from T0R4X ⁠◠o⁠◠}}$
 
+[Uictim](https://github.com/Uictim) was written an appreciation letter from ☕ ([Nadd-nadd](https://github.com/Nadd-nadd))
+
 <div align="center">
 
   <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
