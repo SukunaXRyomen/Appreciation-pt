@@ -191,4 +191,4 @@ $\color{#ccbfff}{\text{𝘠𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘧𝘰𝘭𝘭�
 
   <img src="https://file.garden/ade0uRrc7hT3IuzM/2854a0fb2f212883bbe733a2db09a87e.gif" width="850" height="150">
 
-𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: 𝐒𝐞𝐩𝐭. 𝟐𝟎, 𝟐𝟎𝟐𝟔
+𝐋𝐀𝐒𝐓 𝐋𝐎𝐆: *ꜱᴇᴘᴛᴇᴍʙᴇʀ. 21, 2026*
