@@ -158,11 +158,13 @@ $\color{#afa4f5}{\text{𝘌𝘝𝘌𝘙 𝘔𝘌𝘛!!}}$
 
 $\color{#8b7ee0}{\text{𝘛𝘺𝘴𝘮 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦, 𝘧𝘰𝘳 𝘵𝘩𝘦 𝘱𝘶𝘳𝘦 𝘦𝘹𝘤𝘪𝘵𝘦𝘮𝘦𝘯𝘵 𝘺𝘰𝘶 𝘢𝘭𝘸𝘢𝘺𝘴 𝘨𝘰𝘵 𝘵𝘰 𝘴𝘩𝘢𝘳𝘦. 𝘭𝘰𝘷𝘦 𝘶 /𝘱 - @𝘕𝘢𝘥𝘥-𝘯𝘢𝘥𝘥}}$
 
-[𝗜𝗹𝗼𝘃𝗲-𝗵𝗶𝗺](https://github.com/ilove-him)  , [𝗰-𝘂𝘁𝗲𝘀𝘆](https://github.com/c-utesy) $\color{#f6f0ff}{\text{𝗮𝗻𝗱}}$ [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/olgasinxer) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗩𝗔𝗿𝘁𝗳𝘂𝗹𝘁𝗿𝘂𝘀𝘁](https://github.com/VArtfultrust)
+[𝗜𝗹𝗼𝘃𝗲-𝗵𝗶𝗺](https://github.com/ilove-him)  , [𝗰-𝘂𝘁𝗲𝘀𝘆](https://github.com/c-utesy) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/olgasinxer) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗩𝗔𝗿𝘁𝗳𝘂𝗹𝘁𝗿𝘂𝘀𝘁](https://github.com/VArtfultrust)
 
-$\color{#e0c9ff}{\text{𝘉𝘦𝘷𝘢𝘶𝘴𝘦 𝘪 𝘭𝘰𝘷𝘦 𝘵𝘩𝘦𝘮 𝘱𝘭𝘢𝘵𝘰𝘯𝘪𝘤𝘵𝘭𝘺 𝘢𝘯𝘥 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘨𝘳𝘰𝘶𝘱 𝘢𝘸}}$
+$\color{#e0c9ff}{\text{𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘴𝘢𝘶𝘤𝘦 𝘪𝘭𝘰𝘷𝘦 𝘭𝘰𝘷𝘦𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘭𝘭𝘭𝘭𝘭𝘭𝘭 𝘢𝘸𝘸𝘸𝘸𝘸𝘸.𝘸.𝘸.𝘸.𝘸𝘸𝘸𝘸}}$
 
-$\color{#ccbfff}{\text{𝘠𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘴𝘰 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘴𝘢𝘶𝘤𝘦 𝘪𝘭𝘰𝘷𝘦 𝘭𝘰𝘷𝘦𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘭𝘭𝘭𝘭𝘭𝘭𝘭 𝘢𝘸𝘸𝘸𝘸𝘸𝘸.𝘸.𝘸.𝘸.𝘸𝘸𝘸𝘸}}$
+[𝗰𝗽𝗻-𝗰𝗼𝗼𝗸](https://github.com/cpn-cook) $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝘁𝗲𝗮𝗺𝗽𝘂𝗻𝗸𝗶𝘁𝘁𝘆](https://github.com/steampunkitty) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝘃𝗮𝗹𝗼𝗿𝗶𝗲}}$
+
+$\color{#e0c9ff}{\text{𝘩𝘪 𝘨𝘶𝘺𝘴 𝘪 𝘏𝘈𝘛𝘌 𝘠𝘖𝘜 𝘨𝘶𝘺𝘴 𝘴𝘰 𝘮𝘶𝘤𝘩.... 𝘨𝘦𝘵 𝘯𝘰𝘳𝘮𝘢𝘭 𝘚𝘔𝘏𝘏𝘏𝘏 𝘷𝘦𝘳𝘪𝘵𝘺 𝘸𝘪𝘭𝘭 𝘨𝘦𝘵 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴... 𝘬𝘪𝘥𝘥𝘪𝘯𝘨 𝘪𝘭𝘺 𝘨𝘶𝘺𝘴 𝘢𝘯𝘥 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘮𝘢𝘬𝘦 𝘮𝘺}}$ $\color{#ccbfff}{\text{𝘥𝘢𝘺 𝘥𝘦𝘴𝘱𝘪𝘵𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘣𝘭𝘰𝘸𝘪𝘯𝘨 𝘶𝘱 𝘮𝘺 𝘭𝘢𝘱𝘵𝘰𝘱!!!!! - 𝘷𝘢𝘭}}$
 
 <div align="center">
 
