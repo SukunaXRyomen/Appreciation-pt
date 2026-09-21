@@ -168,6 +168,12 @@ $\color{#e0c9ff}{\text{𝘩𝘪 𝘨𝘶𝘺𝘴 𝘪 𝘏𝘈𝘛𝘌 𝘠𝘖�
 
 $\color{#afa4f5}{\text{𝘸𝘦 𝘢𝘳𝘦 𝘬𝘯𝘰𝘸𝘯 𝘢𝘴 𝘵𝘩𝘦 𝘴𝘱𝘦𝘳𝘮𝘪𝘵𝘺 𝘷𝘦𝘳𝘪𝘦𝘯𝘵𝘴 (𝘵𝘩𝘢𝘵𝘴 𝘰𝘶𝘳 𝘨𝘤 𝘯𝘢𝘮𝘦)}}$
 
+[𝘀𝗲𝗱𝗲𝗻𝘁𝗮𝗿𝘆𝘄𝗮𝗶𝗹𝘀](https://github.com/sedentarywails) $\color{#f6f0ff}{\text{𝐰𝐚𝐬 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗦𝘁𝗲𝗽𝗵](https://github.com/draingun)
+
+$\color{#e0c9ff}{\text{𝘩𝘪 𝘮𝘢𝘤 𝘩𝘢𝘩𝘢}}$
+
+$\color{#ccbfff}{\text{𝘮𝘺 𝘨𝘪𝘵𝘩𝘶𝘣 𝘪𝘴 @𝘥𝘳𝘢𝘪𝘯𝘨𝘶𝘯 𝘧𝘰𝘭𝘭𝘰𝘸 𝘮𝘦!!!}}$
+
 <div align="center">
 
   <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
