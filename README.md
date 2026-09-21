@@ -158,6 +158,8 @@ $\color{#afa4f5}{\text{𝘌𝘝𝘌𝘙 𝘔𝘌𝘛!!}}$
 
 $\color{#8b7ee0}{\text{𝘛𝘺𝘴𝘮 𝘧𝘰𝘳 𝘣𝘦𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦, 𝘧𝘰𝘳 𝘵𝘩𝘦 𝘱𝘶𝘳𝘦 𝘦𝘹𝘤𝘪𝘵𝘦𝘮𝘦𝘯𝘵 𝘺𝘰𝘶 𝘢𝘭𝘸𝘢𝘺𝘴 𝘨𝘰𝘵 𝘵𝘰 𝘴𝘩𝘢𝘳𝘦. 𝘭𝘰𝘷𝘦 𝘶 /𝘱 - @𝘕𝘢𝘥𝘥-𝘯𝘢𝘥𝘥}}$
 
+[𝗜𝗹𝗼𝘃𝗲-𝗵𝗶𝗺](https://github.com/ilove-him)  , [𝗰-𝘂𝘁𝗲𝘀𝘆](https://github.com/c-utesy) 𝗮𝗻𝗱 [𝗢𝗹𝗴𝗮𝗦𝗶𝗻𝘅𝗲𝗿](https://github.com/olgasinxer) 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 [𝗩𝗔𝗿𝘁𝗳𝘂𝗹𝘁𝗿𝘂𝘀𝘁](https://github.com/VArtfultrust)
+
 <div align="center">
 
   <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
