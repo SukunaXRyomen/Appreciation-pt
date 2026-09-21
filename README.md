@@ -178,6 +178,12 @@ $\color{#ccbfff}{\text{𝘮𝘺 𝘨𝘪𝘵𝘩𝘶𝘣 𝘪𝘴 @𝘥𝘳𝘢�
 
 $\color{#e0c9ff}{\text{𝘩𝘪 𝘮𝘦𝘸!!! 𝘺𝘰𝘶'𝘳𝘦 𝘴𝘰 𝘤𝘰𝘰𝘭 𝘢𝘯𝘥 𝘢𝘸𝘦𝘴𝘰𝘮𝘦 𝘢𝘯𝘯𝘥 𝘪 𝘭𝘰𝘷𝘦 𝘶𝘳 𝘱𝘰𝘯𝘪𝘦𝘴!! 𝘰𝘬 𝘣𝘺𝘦}}$
 
+[𝗙𝗹𝘂𝗳𝗳𝗽𝘂𝗳𝗳𝘇](https://github.com/fluffpuffz) , [𝗫𝗔𝗡𝗗𝗥𝗘𝗢𝗛𝗭𝗔𝗡𝗭𝗔𝗡](https://github.com/xandreohzanzan) $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦}}$ [𝗢𝗛𝗕𝗨𝗡𝗡𝗬𝗕𝗨𝗡𝗡𝗬](https://github.com/OHBUNNYBUNNY)
+
+$\color{#e0c9ff}{\text{𝘺𝘰𝘶 𝘵𝘸𝘰 𝘮𝘢𝘬𝘦 𝘮𝘺 𝘥𝘢𝘺 𝘣𝘳𝘪𝘨𝘩𝘵𝘦𝘳 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘴𝘰 𝘮𝘶𝘤𝘩 𝘧𝘰𝘳 𝘢𝘭𝘸𝘢𝘺𝘴 𝘣𝘦𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘧𝘰𝘳 𝘮𝘦}}$
+
+$\color{#ccbfff}{\text{𝘠𝘰𝘶 𝘴𝘩𝘰𝘶𝘭𝘥 𝘧𝘰𝘭𝘭𝘰𝘸 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘮𝘦 (𝘖𝘏𝘉𝘜𝘕𝘕𝘠𝘉𝘜𝘕𝘕𝘠) 𝘰𝘯 𝘨𝘪𝘵𝘩𝘶𝘣 𝘸𝘦 𝘤𝘰𝘰𝘭 𝘵𝘳𝘶𝘴𝘵 /𝘫𝘰𝘬𝘦}}$
+
 <div align="center">
 
   <img src="tumblr_02d043fbace78ea0a4dcde52be6ccf1b_7072f555_2048.webp">
