@@ -58,16 +58,16 @@ $\color{#e0c9ff}{\text{ 𝘪 𝘫𝘶𝘴𝘵 𝘸𝘢𝘯𝘯𝘢 𝘴𝘢𝘺 
 $\color{#ccbfff}{\text{𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘢𝘭𝘸𝘢𝘺𝘴 𝘧𝘦𝘦𝘭 𝘣𝘦𝘵𝘵𝘦𝘳 𝘸𝘩𝘦𝘯 𝘪 𝘧𝘦𝘭𝘵 𝘥𝘰𝘸𝘯, 𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘦 𝘭𝘢𝘶𝘨𝘩, 𝘱𝘭𝘢𝘺𝘪𝘯𝘨 𝘵𝘰𝘨𝘦𝘵𝘩𝘦𝘳 𝘸𝘪𝘵𝘩 𝘮𝘦,}}$ 
 $\color{#afa4f5}{\text{𝘫𝘶𝘴𝘵 𝘺𝘰𝘶 𝘤𝘩𝘦𝘤𝘬𝘪𝘯𝘨 𝘶𝘱 𝘰𝘯 𝘮𝘦 𝘸𝘢𝘴 𝘢𝘭𝘸𝘢𝘺𝘴 𝘦𝘯𝘰𝘶𝘨𝘩, 𝘴𝘰 𝘪 𝘸𝘢𝘯𝘵𝘦𝘥 𝘵𝘰 𝘵𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘵𝘩𝘢𝘵.ᐟ }}$
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝐋𝐨𝟎𝐧𝐲𝐆𝐨𝐨𝐧](https://github.com/Lo0nyGoon), [𝐂𝐫𝐮𝐜𝐢𝐟𝐢𝐞𝐝𝐎𝐫𝐠𝐚𝐧](https://github.com/CrucifiedOrgan), 𝐚𝐧𝐝 [𝐒𝐢𝐧𝐠𝐞𝐫-𝐨𝐟-𝐭𝐡𝐞-𝐧𝐞𝐰𝐠𝐞𝐧𝐞𝐬𝐢𝐬](https://github.com/Singer-of-the-newgenesis)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐢𝐤𝐚𝐞𝐥𝐚}}$ ([𝐆𝟎𝐫𝐞𝐨𝐥𝐨𝐠𝐲](https://github.com/G0reology))
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗟𝗼𝟬𝗻𝘆𝗚𝗼𝗼𝗻](https://github.com/Lo0nyGoon), [𝗖𝗿𝘂𝗰𝗶𝗳𝗶𝗲𝗱𝗢𝗿𝗴𝗮𝗻](https://github.com/CrucifiedOrgan), 𝐚𝐧𝐝 [𝗦𝗶𝗻𝗴𝗲𝗿-𝗼𝗳-𝘁𝗵𝗲-𝗻𝗲𝘄𝗴𝗲𝗻𝗲𝘀𝗶𝘀](https://github.com/Singer-of-the-newgenesis)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐌𝐢𝐤𝐚𝐞𝐥𝐚}}$ ([𝗚𝟬𝗿𝗲𝗼𝗹𝗼𝗴𝘆](https://github.com/G0reology))
 
 $\color{#e0c9ff}{\text{ 𝘠𝘢𝘭𝘭 𝘢𝘳𝘦 𝘮𝘺 𝘤𝘭𝘰𝘴𝘦𝘴𝘵 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘬, 𝘱𝘵 𝘪𝘴 𝘯𝘦𝘷𝘦𝘳 𝘣𝘰𝘳𝘪𝘯𝘨 𝘸 𝘺𝘢𝘭𝘭 𝘰𝘯𝘭𝘪𝘯𝘦 𝘢𝘯𝘥 𝘪𝘭𝘺 𝘺𝘢𝘭𝘭/𝘱 𝘰𝘬𝘰𝘬 }}$ 
 
-  $\color{#f6f0ff}{\text{♡︎}}$ [𝐜𝐮𝐩𝐢𝐢𝐝𝐬𝐡𝐨𝐭](https://github.com/cupiidshot)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝐬𝐞𝐥𝐟-𝐩𝐞𝐫𝐬𝐞𝐫𝐯𝐚𝐭𝐢𝐨𝐧𝟖](https://github.com/self-preservation8)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta))
+  $\color{#f6f0ff}{\text{♡︎}}$ [𝗰𝘂𝗽𝗶𝗶𝗱𝘀𝗵𝗼𝘁](https://github.com/cupiidshot)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$ [𝘀𝗲𝗹𝗳-𝗽𝗿𝗲𝘀𝗲𝗿𝘃𝗮𝘁𝗶𝗼𝗻𝟴](https://github.com/self-preservation8)   $\color{#f6f0ff}{\text{𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
 
 $\color{#e0c9ff}{\text{ 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘤𝘩𝘶𝘥𝘴 𝘭𝘪𝘬𝘦 𝘢𝘯 𝘢𝘤𝘵𝘶𝘢𝘭 𝘧𝘢𝘵𝘩𝘦𝘳, 𝘐'𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘺𝘰𝘶 𝘣𝘰𝘵𝘩 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 :-] }}$ 
 
   $\color{#f6f0ff}{\text{♡︎}}$ [𝐢𝐢𝐦𝐬𝐞𝐲](https://github.com/iimsey), [𝐬𝐭𝐚𝐫-𝐞𝐦𝐩𝐥𝐨𝐲𝐞𝐞](https://github.com/star-employee), [𝐞𝐚𝐫𝐥-𝐠𝐫𝐞𝐲-𝐦𝐩𝟒](https://github.com/earl-grey-mp4), [𝐳𝐞𝐩𝐡𝐲𝐫𝐜𝐥𝐲𝐬𝐦](https://github.com/zephyrclysm), [𝐩𝐚𝐬𝐭𝐞𝐥𝐥𝐜𝐥𝐨𝐮𝐝𝐲𝐲](https://github.com/pastellcloudyy)   $\color{#f6f0ff}{\text{𝐚𝐧𝐝}}$
-  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝐝𝐫-𝐯𝐚𝐧𝐭𝐚](https://github.com/dr-vanta))
+  $\color{#f6f0ff}{\text{𝐚𝐥𝐥 𝐭𝐡𝐞 𝐨𝐭𝐡𝐞𝐫 𝐞𝐝𝐠𝐲𝐥𝐨𝐫𝐝𝐬 𝐰𝐞𝐫𝐞 𝐰𝐫𝐢𝐭𝐭𝐞𝐧 𝐚𝐧 𝐚𝐩𝐩𝐫𝐞𝐜𝐢𝐚𝐭𝐢𝐨𝐧 𝐥𝐞𝐭𝐭𝐞𝐫 𝐟𝐫𝐨𝐦 𝐯𝐚𝐧𝐭𝐚}}$ ([𝗱𝗿-𝘃𝗮𝗻𝘁𝗮](https://github.com/dr-vanta))
 
 $\color{#e0c9ff}{\text{ 𝘩𝘪 𝘨𝘶𝘺𝘴 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘺𝘰𝘶 𝘨𝘶𝘺𝘴 𝘢𝘳𝘦 𝘮𝘺 𝘳𝘪𝘥𝘦 𝘰𝘳 𝘥𝘪𝘦 𝘰𝘬𝘢𝘺....ᐣ 𝘯𝘰𝘯𝘦 𝘰𝘧 𝘺𝘰𝘶 𝘦𝘹𝘱𝘭𝘰𝘥𝘦 𝘰𝘯 𝘮𝘦 𝘰𝘬𝘢𝘺....ᐣ 𝘰𝘬𝘢𝘺 }}$
 
